@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you genuinely want something, don't wait for it - teach yourself.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;Supreme excellence consists of breaking the enemy's resistance without fighting.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
