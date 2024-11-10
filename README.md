@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If a man knows not to which port he sails, no wind is favorable.  &quot;</em> <br>
-— Seneca
+<em>&quot;Shoot for the moon. Even if you miss, you'll land among the stars.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
