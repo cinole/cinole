@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You may be disappointed if you fail, but you are doomed if you don't try.&quot;</em> <br>
-— Beverly Sills
+<em>&quot;The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches.&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
