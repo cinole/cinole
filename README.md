@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Belief creates the actual fact.&quot;</em> <br>
-— William James
+<em>&quot;You're only given a little spark of madness. You mustn't lose it.&quot;</em> <br>
+— Robin Williams
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
