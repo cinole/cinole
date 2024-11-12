@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing.&quot;</em> <br>
-— Alan Watts
+<em>&quot;I am not proud, but I am happy; and happiness blinds, I think, more than pride.&quot;</em> <br>
+— Alexandre Dumas
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
