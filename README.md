@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Create with the heart; build with the mind.&quot;</em> <br>
-— Criss Jami
+<em>&quot;The real meditation is how you live your life.&quot;</em> <br>
+— Jon Kabat-Zinn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
