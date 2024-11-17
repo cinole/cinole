@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To bear trials with a calm mind robs misfortune of its strength and burden.&quot;</em> <br>
-— Seneca
+<em>&quot;It's your outlook on life that counts.&quot;</em> <br>
+— Betty White
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
