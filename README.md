@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you pray for rain, be prepared to deal with some mud.&quot;</em> <br>
-— Mary Engelbreit
+<em>&quot;The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
