@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We meet ourselves time and again in a thousand disguises on the path of life.&quot;</em> <br>
-— Carl Jung
+<em>&quot;If you try, you might get exactly what you want. If you don't, you don't.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
