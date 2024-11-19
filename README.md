@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't concern yourself with the money. Be of service. Build. Work. Dream. Create.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself.&quot;</em> <br>
+— Samuel Butler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
