@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;In youth we run into difficulties. In old age difficulties run into us. &quot;</em> <br>
-— Beverly Sills
+<em>&quot;Never take your position for granted and never let any favors you receive go to your head.&quot;</em> <br>
+— Robert Greene
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
