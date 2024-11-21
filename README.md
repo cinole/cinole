@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Prefer to be defeated in the presence of the wise than to excel among fools.&quot;</em> <br>
-— Dogen
+<em>&quot;Do not allow your inner doubts to keep you from achieving what you can do.&quot;</em> <br>
+— Lolly Daskal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
