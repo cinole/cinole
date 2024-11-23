@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;My guiding principle is this: Guilt is never to be doubted. &quot;</em> <br>
-— Franz Kafka
+<em>&quot;Everything eaten is killed. Every meal is a sacrifice.&quot;</em> <br>
+— Adi Da Samraj
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
