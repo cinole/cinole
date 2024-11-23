@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Do not allow your inner doubts to keep you from achieving what you can do.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;You can easily judge the character of a man by how he treats those who can do nothing for him.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
