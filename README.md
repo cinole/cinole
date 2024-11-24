@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Focus is a matter of deciding what things you're not going to do.&quot;</em> <br>
-— John Carmack
+<em>&quot;Be - don't try to become &quot;</em> <br>
+— Osho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
