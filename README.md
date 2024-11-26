@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I was wise enough to never grow up while fooling most people into believing I had. &quot;</em> <br>
-— Margaret Mead
+<em>&quot;Never to suffer would never to have been blessed.&quot;</em> <br>
+— Edgar Allan Poe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
