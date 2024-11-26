@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The best way to not feel hopeless is to get up and do something.&quot;</em> <br>
-— Barack Obama
+<em>&quot;Definitions belong to the definers, not the defined.&quot;</em> <br>
+— Toni Morrison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
