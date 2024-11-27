@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When the world pushes you to your knees, you're in the perfect position to pray.&quot;</em> <br>
-— Rumi
+<em>&quot;The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune. &quot;</em> <br>
+— Charles Swindoll
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
