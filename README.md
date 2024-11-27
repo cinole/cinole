@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop.&quot;</em> <br>
-— Mother Teresa
+<em>&quot;The first step toward getting somewhere is to decide that you are not going to stay where you are.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
