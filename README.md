@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you don't like something, change it. If you can't change it, change your attitude.&quot;</em> <br>
-— Maya Angelou
+<em>&quot;The best way to predict your future is to create it.&quot;</em> <br>
+— Abraham Lincoln
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
