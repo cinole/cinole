@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;As you love yourself, life loves you back.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;We cannot always do great things in life, but we can do small things with great love.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
