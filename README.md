@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't learn to do, but learn in doing.&quot;</em> <br>
-— Samuel Butler
+<em>&quot;The wise speak only of what they know.&quot;</em> <br>
+— J.R.R. Tolkien
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
