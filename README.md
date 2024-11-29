@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If a man knows not to which port he sails, no wind is favorable.  &quot;</em> <br>
-— Seneca
+<em>&quot;You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
