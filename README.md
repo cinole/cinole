@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The few who do are the envy of the many who only watch.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
