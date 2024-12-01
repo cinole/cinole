@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The more you praise and celebrate your life, the more there is in life to celebrate. &quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;If you spend too much time thinking about a thing, you'll never get it done. &quot;</em> <br>
+— Bruce Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
