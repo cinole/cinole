@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To forgive means pardoning the unpardonable.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
