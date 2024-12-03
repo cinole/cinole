@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The moment you stop to think about whether you love someone, you've already stopped loving that person forever.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;You came empty handed, and you will leave empty handed.&quot;</em> <br>
+— Bhagavad Gita
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
