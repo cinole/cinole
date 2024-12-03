@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I don't walk away from things that I think are unfinished.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;Decide whether or not the goal is worth the risks involved. If it is, stop worrying.&quot;</em> <br>
+— Amelia Earhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
