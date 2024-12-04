@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Never give up work. Work gives you meaning and purpose and life is empty without it.&quot;</em> <br>
-— Stephen Hawking
+<em>&quot;If you're really truthful with yourself, it's a wonderful guidance.  &quot;</em> <br>
+— Charlie Chaplin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
