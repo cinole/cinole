@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nothing we see or hear is perfect. But right there in the imperfection is perfect reality.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
