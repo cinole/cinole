@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Life has no limitations except the ones you make.&quot;</em> <br>
-— Les Brown
+<em>&quot;When at last you are come to the ocean of happiness, do not go back thirsty.&quot;</em> <br>
+— Kabir
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
