@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do.&quot;</em> <br>
-— Nelson Mandela
+<em>&quot;Fear, uncertainty, and discomfort are your compasses toward growth.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
