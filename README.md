@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it.&quot;</em> <br>
-— George Eliot
+<em>&quot;Always do what is right. It will gratify half of mankind and astound the other.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
