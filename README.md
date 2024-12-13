@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The man who moved the mountain was the one who began carrying away the smallest stones.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;I enjoy life when things are happening. I don't care if it's good things or bad things. That means you're alive.&quot;</em> <br>
+— Joan Rivers
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
