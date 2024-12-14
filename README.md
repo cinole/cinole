@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Words without actions are the assassins of idealism.&quot;</em> <br>
-— Herbert Hoover
+<em>&quot;Every man desires to live long, but no man wishes to be old.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
