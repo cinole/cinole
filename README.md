@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Little by little, one travels far.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;The best mind-altering drug is the truth.&quot;</em> <br>
+— Lily Tomlin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
