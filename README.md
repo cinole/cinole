@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You know you are on the road to success if you would do your job and not be paid for it.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;As long as a human being worries about when he will die, and what he has that is his, all of his works are zero.&quot;</em> <br>
+— Kabir
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
