@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Only when you can be extremely pliable and soft can you be extremely hard and strong.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;Numbing the pain for a while will only make it worse when you finally feel it.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
