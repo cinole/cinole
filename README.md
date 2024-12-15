@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Every failure brings with it the seed of an equivalent success.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;Good, better, best. Never let it rest. 'Til your good is better and your better is best. &quot;</em> <br>
+— St. Jerome
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
