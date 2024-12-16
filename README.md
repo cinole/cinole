@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are no second chances in life, except to feel remorse.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;Remain calm. Be kind.&quot;</em> <br>
+— Colin Powell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
