@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Normality is a paved road: It's comfortable to walk, but no flowers grow on it.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;The universe doesn't allow perfection.&quot;</em> <br>
+— Stephen Hawking
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
