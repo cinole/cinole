@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You are not what you think you are, You are not what others think you are, You are what you think others think you are.&quot;</em> <br>
-— Unknown
+<em>&quot;What the mind can conceive and believe, and the heart desire, you can achieve.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
