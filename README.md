@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everyone wants to go to Heaven, but no one wants to die.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;No idea, no matter how good, will work if it doesn't get used.&quot;</em> <br>
+— Peter A. Cohen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
