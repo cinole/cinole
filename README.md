@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I am always doing what I cannot do yet, in order to learn how to do it.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;Never give up work. Work gives you meaning and purpose and life is empty without it.&quot;</em> <br>
+— Stephen Hawking
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
