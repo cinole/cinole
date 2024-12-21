@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot.&quot;</em> <br>
-— D. H. Lawrence
+<em>&quot;Mistake is a mistake only if you make it twice.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
