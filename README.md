@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It does not do to dwell on dreams and forget to live, remember that.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;If no one ever broke the rules, then we'd never advance.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
