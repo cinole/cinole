@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Vision is the art of seeing things invisible.&quot;</em> <br>
-— Jonathan Swift
+<em>&quot;Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
