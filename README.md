@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Why live an ordinary life, when you can live an extraordinary one.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;It's not the size of the dog in the fight, it's the size of the fight in the dog.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
