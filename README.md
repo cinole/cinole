@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Keep your face to the sunshine and you cannot see the shadows.&quot;</em> <br>
-— Helen Keller
+<em>&quot;Reading should be a pleasure, not a chore.&quot;</em> <br>
+— Joan Rivers
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
