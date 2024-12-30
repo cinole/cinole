@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I try more and more to be myself, caring relatively little whether people approve or disapprove.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;Do good by stealth, and blush to find it fame.&quot;</em> <br>
+— Alexander Pope
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
