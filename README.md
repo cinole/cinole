@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You can start changing our world for the better daily, no matter how small the action.&quot;</em> <br>
-— Nelson Mandela
+<em>&quot;Anger exceeding limits causes fear and excessive kindness eliminates respect.&quot;</em> <br>
+— Euripides
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
