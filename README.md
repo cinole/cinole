@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If the happiness and prosperity of other people depend on you, you have nothing to fear anymore.&quot;</em> <br>
-— Robert Greene
+<em>&quot;There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
