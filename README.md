@@ -1,4 +1,4 @@
-### Good afternoon 👋
+### Good evening ☕
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You may be one person in this world, but to one person you may mean the world.&quot;</em> <br>
-— Unknown
+<em>&quot;Great things are not accomplished by those who yield to trends and fads and popular opinion.&quot;</em> <br>
+— Jack Kerouac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
