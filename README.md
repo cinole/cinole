@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We must learn to live together as brothers or perish together as fools.&quot;</em> <br>
-— Martin Luther King, Jr.
+<em>&quot;The meaning of life is just to be alive. It is so plain and so obvious and so simple.&quot;</em> <br>
+— Alan Watts
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
