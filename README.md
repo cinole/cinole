@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;All wealth is the product of labor.&quot;</em> <br>
-— John Locke
+<em>&quot;Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.&quot;</em> <br>
+— Thich Nhat Hanh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
