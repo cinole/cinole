@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;Nothing you do is going to matter that much in the long run. Don't take yourself so seriously.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
