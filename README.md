@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The biggest room in the world is the room for improvement.&quot;</em> <br>
-— Unknown
+<em>&quot;It doesn't matter how slow you go, as long as you don't stop.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
