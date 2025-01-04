@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it.&quot;</em> <br>
-— Robert Frost
+<em>&quot;Enthusiasm is a vital element toward the individual success of every man or woman.&quot;</em> <br>
+— Conrad Hilton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
