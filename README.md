@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;The biggest adventure you can ever take is to live the life of your dreams. &quot;</em> <br>
+— Oprah Winfrey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
