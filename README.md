@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Enthusiasm is a vital element toward the individual success of every man or woman.&quot;</em> <br>
-— Conrad Hilton
+<em>&quot;Human beings believe just as they breathe - in order to survive.&quot;</em> <br>
+— Carlos Ruiz Zafon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
