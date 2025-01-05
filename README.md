@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Far and away the best prize that life has to offer is the chance to work hard at work worth doing.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Don't be afraid to go slowly. Be afraid of stopping.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
