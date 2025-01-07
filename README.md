@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Each of us is a unique strand in the intricate web of life and here to make a contribution.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;The nearer a man comes to a calm mind, the closer he is to strength.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
