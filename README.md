@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is only one thing in the world worse than being talked about, and that is not being talked about. &quot;</em> <br>
-— Oscar Wilde
+<em>&quot;You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
