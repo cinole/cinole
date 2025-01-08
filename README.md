@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;Live your life and forget your age.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
