@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Fear not the path of Truth for the lack of People walking on it.&quot;</em> <br>
-— Robert F. Kennedy
+<em>&quot;You are not one person, but three: The one you think you are; The one others think you are; The one you really are.&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
