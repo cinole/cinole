@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Even if you stumble and fall down, it doesn't mean you've chosen the wrong path.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;True it is, we only hate those whom we do not know.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
