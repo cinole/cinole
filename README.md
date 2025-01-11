@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Change yourself and you have done your part in changing the world.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;Learning is a gift, even when pain is your teacher.&quot;</em> <br>
+— Michael Jordan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
