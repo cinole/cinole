@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Confuse them with your silence and amaze them with your actions.&quot;</em> <br>
-— Unknown
+<em>&quot;Lust, anger and greed are the three gates to self-destructive hell.&quot;</em> <br>
+— Bhagavad Gita
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
