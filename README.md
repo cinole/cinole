@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To every action there is always opposed an equal reaction.&quot;</em> <br>
-— Isaac Newton
+<em>&quot;Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories.&quot;</em> <br>
+— Ray Bradbury
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
