@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is no limitations except those we create for ourselves.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;You have to make time, even for something as universal as staring at the stars.&quot;</em> <br>
+— W.P. Kinsella
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
