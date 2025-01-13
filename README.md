@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Great acts are made up of small deeds.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;My definition of success is control.&quot;</em> <br>
+— Kenneth Branagh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
