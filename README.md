@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Use your smile to change the world but don't let the world change your smile.&quot;</em> <br>
+<em>&quot;Storms don't last forever.&quot;</em> <br>
 — Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
