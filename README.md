@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When you want to be honored by others, you learn to honor them first.&quot;</em> <br>
-— Sathya Sai Baba
+<em>&quot;Begin now to be what you will be hereafter.&quot;</em> <br>
+— St. Jerome
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
