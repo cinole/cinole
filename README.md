@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Take care of your cents: dollars will take care of themselves.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;When you say yes to change, you are choosing to navigate that path peacefully and happily and see where it takes you.&quot;</em> <br>
+— Sonia Ricotti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
