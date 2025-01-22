@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The harder you work, the harder it is to surrender.&quot;</em> <br>
-— Vince Lombardi
+<em>&quot;If you quit once it becomes a habit.&quot;</em> <br>
+— Michael Jordan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
