@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;Become the kind of leader that people would follow voluntarily, even if you had no title or position.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
