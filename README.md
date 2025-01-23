@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Happiness is the spiritual experience of living every minute with love, grace and gratitude.&quot;</em> <br>
-— Denis Waitley
+<em>&quot;To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
