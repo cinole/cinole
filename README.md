@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Consider the rights of others before your own feelings, and the feelings of others before your own rights.&quot;</em> <br>
-— John Wooden
+<em>&quot;A good system shortens the road to the goal. &quot;</em> <br>
+— Orison Swett Marden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
