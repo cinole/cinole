@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nothing is really work unless you would rather be doing something else. &quot;</em> <br>
-— James Matthew Barrie
+<em>&quot;Night is a more quiet time to work. It aids thought.&quot;</em> <br>
+— Alexander Graham Bell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
