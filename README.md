@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Chase your passion, not your pension. &quot;</em> <br>
-— Denis Waitley
+<em>&quot;To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
