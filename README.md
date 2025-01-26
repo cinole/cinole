@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A fear of weakness only strengthens weakness.&quot;</em> <br>
-— Criss Jami
+<em>&quot;Change yourself - you are in control.&quot;</em> <br>
+— Mahatma Gandhi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
