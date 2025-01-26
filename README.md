@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Growth is in a series of mistakes. That's the only way you learn.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Do it with passion, or not at all.&quot;</em> <br>
+— Rosa Nouchette Carey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
