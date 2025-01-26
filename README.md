@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Do it with passion, or not at all.&quot;</em> <br>
-— Rosa Nouchette Carey
+<em>&quot;Keep smiling, because life is a beautiful thing and there's so much to smile about.&quot;</em> <br>
+— Marilyn Monroe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
