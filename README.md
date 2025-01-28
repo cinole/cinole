@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The secret of life is to fall seven times and to get up eight times.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;The eye with which I see God is the same eye with which God sees me.&quot;</em> <br>
+— Meister Eckhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
