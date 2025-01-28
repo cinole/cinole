@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with.&quot;</em> <br>
+— Woody Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
