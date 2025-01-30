@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The search for happiness is one of the chief sources of unhappiness.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;True knowledge exists in knowing that you know nothing.&quot;</em> <br>
+— Socrates
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
