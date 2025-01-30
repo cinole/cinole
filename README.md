@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Magic is believing in yourself, if you can do that, you can make anything happen.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;We suffer more often in imagination than in reality.  &quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
