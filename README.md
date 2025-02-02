@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It's easier to lose than to win.  &quot;</em> <br>
-— Wayne Gretzky
+<em>&quot;Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways.&quot;</em> <br>
+— Sigmund Freud
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
