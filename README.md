@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You can never cross the ocean unless you have the courage to lose sight of the shore.&quot;</em> <br>
-— Christopher Columbus
+<em>&quot;It's not what we do once in a while that shapes our lives, but what we do consistently.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
