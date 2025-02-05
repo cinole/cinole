@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I put my heart and soul into my work, and I have lost my mind in the process.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;Man's character is his fate.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
