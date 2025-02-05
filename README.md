@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Being wrong opens us up to the possibility of change.&quot;</em> <br>
-— Mark Manson
+<em>&quot;The moment you stop to think about whether you love someone, you've already stopped loving that person forever.&quot;</em> <br>
+— Carlos Ruiz Zafon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
