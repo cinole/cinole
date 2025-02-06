@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When you are tempted to give up, your breakthrough is probably just around the corner.&quot;</em> <br>
-— Joyce Meyer
+<em>&quot;Live and act within the limit of your knowledge and keep expanding it to the limit of your life.&quot;</em> <br>
+— Ayn Rand
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
