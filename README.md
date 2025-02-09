@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;In the long run, the sharpest weapon of all is a kind and gentle spirit.&quot;</em> <br>
-— Anne Frank
+<em>&quot;Be as fluid as water, do not give your enemies anything solid to attack.&quot;</em> <br>
+— Robert Greene
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
