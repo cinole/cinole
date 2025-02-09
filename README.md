@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;One must be poor to know the luxury of giving.&quot;</em> <br>
-— George Eliot
+<em>&quot;You don't need a weatherman to know which way the wind blows.&quot;</em> <br>
+— Bob Dylan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
