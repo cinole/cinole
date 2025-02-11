@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When your intuition is strong, follow it.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;Anyone who has ever made anything of importance was disciplined.&quot;</em> <br>
+— Andrew Hendrixson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
