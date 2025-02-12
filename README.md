@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A gentleman is one who puts more into the world than he takes out.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;Expect the best, plan for the worst, and prepare to be surprised. &quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
