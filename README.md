@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Thought is so cunning, so clever, that it distorts everything for its own convenience.&quot;</em> <br>
-— Jiddu Krishnamurti
+<em>&quot;Cherish forever what makes you unique, cuz you're really a yawn if it goes.&quot;</em> <br>
+— Bette Midler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
