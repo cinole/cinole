@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A Rolling Stone Gathers No Moss.&quot;</em> <br>
-— Publilius Syrus
+<em>&quot;A gentleman is one who puts more into the world than he takes out.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
