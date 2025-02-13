@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Thinking will not overcome fear but action will. &quot;</em> <br>
-— W. Clement Stone
+<em>&quot;It's your life; you don't need someone's permission to live the life you want. Be brave to live from your heart.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
