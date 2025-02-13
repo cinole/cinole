@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You drown not by falling into a river, but by staying submerged in it.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you.&quot;</em> <br>
+— Sonia Ricotti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
