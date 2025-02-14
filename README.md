@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Most of the evil in this world is done by people with good intentions.&quot;</em> <br>
-— T.S. Eliot
+<em>&quot;The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach.&quot;</em> <br>
+— Benjamin Mays
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
