@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If what you're doing is not your passion, you have nothing to lose.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
