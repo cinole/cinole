@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I can think of nothing less pleasurable than a life devoted to pleasure.&quot;</em> <br>
-— John D. Rockefeller
+<em>&quot;Leave the beaten track behind occasionally and dive into the woods. Every time you do you will be certain to find something you have never seen before.&quot;</em> <br>
+— Alexander Graham Bell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
