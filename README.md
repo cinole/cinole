@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When you're at the end of your rope, tie a knot and hold on.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;There is no self-discovery without pain and loss.&quot;</em> <br>
+— Anita Krizzan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
