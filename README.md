@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is best to begin at the beginning.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;Friendship is like money, easier made than kept.&quot;</em> <br>
+— Samuel Butler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
