@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Accept responsibility for your life. Know that it is you who will get you where you want to go, no one else.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
