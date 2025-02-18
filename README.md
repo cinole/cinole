@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A hut full of laughter is richer than a palace full of sadness.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
