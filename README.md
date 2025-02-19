@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You become a worrier by practicing worry. You become free of worry by practicing the opposite.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;Opportunities don't often come along. So, when they do, you have to grab them.&quot;</em> <br>
+— Audrey Hepburn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
