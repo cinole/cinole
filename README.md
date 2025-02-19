@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't allow your mind to tell your heart what to do. The mind gives up easily.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;Don't Let Yesterday Take Up Too Much Of Today.&quot;</em> <br>
+— Will Rogers
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
