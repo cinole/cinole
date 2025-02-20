@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world.&quot;</em> <br>
-— Henry Ward Beecher
+<em>&quot;It is your attitude, not your aptitude, that determines your altitude.&quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
