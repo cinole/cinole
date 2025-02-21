@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;By failing to prepare, you are preparing to fail.&quot;</em> <br>
-— Benjamin Franklin
+<em>&quot;To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
