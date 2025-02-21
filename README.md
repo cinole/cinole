@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Correct what you can. Learn from what you can't.&quot;</em> <br>
-— Toni Morrison
+<em>&quot;Every moment is a fresh beginning.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
