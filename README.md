@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Without struggle, no progress and no result. Every breaking of habit produces a change in the machine.&quot;</em> <br>
+— G.I. Gurdjieff
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
