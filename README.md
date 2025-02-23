@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The hardest arithmetic to master is that which enables us to count our blessings.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;Death is not sad; the sad thing is that most people don't really live at all.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
