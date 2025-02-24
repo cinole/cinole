@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest test of courage on earth is to bear defeat without losing heart.&quot;</em> <br>
-— Robert Greene
+<em>&quot;Find your Light; They can't love you if they can't see you.&quot;</em> <br>
+— Bette Midler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
