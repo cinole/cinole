@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Just try to be the best you can be; never cease trying to be the best you can be. That's in your power.&quot;</em> <br>
-— John Wooden
+<em>&quot;You are not only responsible for what you say, but also for what you do not say. &quot;</em> <br>
+— Martin Luther
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
