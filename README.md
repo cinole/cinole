@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The more you take responsibility for your past and present, the more you are able to create the future you seek.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;We will now discuss in a little more detail the Struggle for Existence.&quot;</em> <br>
+— Charles Darwin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
