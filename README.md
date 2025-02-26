@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you.&quot;</em> <br>
-— T.S. Eliot
+<em>&quot;Don't live the same year 75 times and call it a life.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
