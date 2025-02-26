@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Realistic people do not accomplish extraordinary things.&quot;</em> <br>
-— John Eliot
+<em>&quot;It still holds true that man is most uniquely human when he turns obstacles into opportunities.&quot;</em> <br>
+— Eric Hoffer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
