@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;To lose your temper is only useful once a year.&quot;</em> <br>
+— Colin R. Davis
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
