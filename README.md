@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It still holds true that man is most uniquely human when he turns obstacles into opportunities.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences &quot;</em> <br>
+— Nikola Tesla
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
