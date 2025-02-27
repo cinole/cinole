@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;One loses many laughs by not laughing at oneself.&quot;</em> <br>
-— Mary Engelbreit
+<em>&quot;The foolish reject what they see, not what they think; the wise reject what they think, not what they see.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
