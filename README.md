@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;Take care of your body. It's the only place you have to live.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
