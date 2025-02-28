@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is nothing like looking if you want to find something.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;The question is not what you look at, but what you see.&quot;</em> <br>
+— Henry David Thoreau
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
