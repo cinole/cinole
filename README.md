@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;Take interest and even delight in doing the small things well.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
