@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Do what is right, not what is easy, nor what is popular.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions.&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
