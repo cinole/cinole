@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We make a living by what we get, but we make a life by what we give.&quot;</em> <br>
-— Unknown
+<em>&quot;Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate; only love can do that.&quot;</em> <br>
+— Martin Luther King, Jr.
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
