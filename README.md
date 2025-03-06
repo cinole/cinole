@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road.&quot;</em> <br>
-— Henry Ward Beecher
+<em>&quot;Do every act of your life as if it were your last.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
