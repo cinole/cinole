@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Our greatest glory is not in never falling, but in rising every time we fall. &quot;</em> <br>
-— Confucius
+<em>&quot;We must learn to live together as brothers or perish together as fools.&quot;</em> <br>
+— Martin Luther King, Jr.
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
