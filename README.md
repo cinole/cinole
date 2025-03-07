@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Through selfless service, you will always be fruitful and find the fulfillment of your desires.&quot;</em> <br>
-— Bhagavad Gita
+<em>&quot;We can't help everyone, but everyone can help someone.&quot;</em> <br>
+— Ronald Reagan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
