@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You know you are on the road to success if you would do your job and not be paid for it.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;The present moment is filled with joy and happiness. If you are attentive, you will see it.&quot;</em> <br>
+— Thich Nhat Hanh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
