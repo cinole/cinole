@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Your happiness is what truly matters most. Do what you have to do in order to be happy.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Stop comparing yourself to others and focus on your own improvement.&quot;</em> <br>
+— Lolly Daskal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
