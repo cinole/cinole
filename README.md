@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We must accept finite disappointment, but never lose infinite hope.&quot;</em> <br>
-— Martin Luther King, Jr.
+<em>&quot;The more reasons you have for achieving your goal, the more determined you will become.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
