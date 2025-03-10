@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live.&quot;</em> <br>
-— Nicolas Chamfort
+<em>&quot;Simplicity is the glory of expression.&quot;</em> <br>
+— Walt Whitman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
