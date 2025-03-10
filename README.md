@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you change the way you look at things, the things you look at change. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Work out your own salvation. Do not depend on others.&quot;</em> <br>
+— Buddha
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
