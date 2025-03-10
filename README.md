@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are as many opinions as there are experts.&quot;</em> <br>
-— Franklin D. Roosevelt
+<em>&quot;You are your best thing.&quot;</em> <br>
+— Toni Morrison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
