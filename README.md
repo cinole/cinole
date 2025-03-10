@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Work out your own salvation. Do not depend on others.&quot;</em> <br>
-— Buddha
+<em>&quot;When you know what you want, and want it bad enough, you will find a way to get it.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
