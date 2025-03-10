@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Fishing is much more than fish.&quot;</em> <br>
-— Herbert Hoover
+<em>&quot;Behind every beautiful thing, there's some kind of pain.&quot;</em> <br>
+— Bob Dylan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
