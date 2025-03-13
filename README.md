@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Character is the result of two things: mental attitude and the way we spend our time.&quot;</em> <br>
-— Elbert Hubbard
+<em>&quot;Success is not final, failure is not fatal: it is the courage to continue that counts.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
