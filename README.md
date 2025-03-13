@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Over time, loneliness gets inside you and doesn't go away.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;Every defeat, every heartbreak every loss, contains its own seed, its own lesson on how to improve your performance the next time.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
