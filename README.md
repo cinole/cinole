@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The time is now, the place is here. Stay in the present.&quot;</em> <br>
-— Dan Millman
+<em>&quot;To perceive is to suffer.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
