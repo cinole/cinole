@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;It's always to soon to quit!&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
