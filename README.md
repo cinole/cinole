@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;This is the most simple and basic component of life: our struggles determine our successes.&quot;</em> <br>
-— Mark Manson
+<em>&quot;Exceptional thinkers ignore their critics and go about their business making history.&quot;</em> <br>
+— John Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
