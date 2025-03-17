@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Respect is earned by effort not age, all things age without effort.&quot;</em> <br>
-— C. Sean McGee
+<em>&quot;It is the mark of an educated mind to be able to entertain a thought without accepting it.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
