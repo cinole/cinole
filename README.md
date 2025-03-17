@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't let the fear of losing be greater than the excitement of winning.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Everything has beauty but not everyone sees it.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
