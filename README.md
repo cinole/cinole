@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;The journey is what brings us happiness not the destination.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
