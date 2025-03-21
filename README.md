@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You don't need to be better than anyone else, you just need to be better than you used to be.&quot;</em> <br>
-— Wayne Dyer
+<em>&quot;The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge.&quot;</em> <br>
+— Stephen Hawking
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
