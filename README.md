@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Even though you are on the right track - you will get run over if you just sit there.&quot;</em> <br>
-— Will Rogers
+<em>&quot;Observe things as they are and don't pay attention to other people.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
