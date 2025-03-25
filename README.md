@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is no value in anything until it is finished. &quot;</em> <br>
-— Genghis Khan
+<em>&quot;Reality is nothing but a collective hunch.&quot;</em> <br>
+— Lily Tomlin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
