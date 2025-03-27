@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself.&quot;</em> <br>
-— Samuel Butler
+<em>&quot;To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace.&quot;</em> <br>
+— Morihei Ueshiba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
