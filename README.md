@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Ask no questions, and you'll be told no lies.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love.&quot;</em> <br>
+— John Lennon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
