@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Just do what must be done. This may not be happiness but it is greatness.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;You are not only responsible for what you say, but also for what you do not say. &quot;</em> <br>
+— Martin Luther
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
