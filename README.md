@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The most important things are the hardest to say.&quot;</em> <br>
-— Stephen King
+<em>&quot;The score never interested me, only the game.&quot;</em> <br>
+— Mae West
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
