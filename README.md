@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The longer we dwell on our misfortunes, the greater is their power to harm us.&quot;</em> <br>
-— Voltaire
+<em>&quot;The most important things are the hardest to say.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
