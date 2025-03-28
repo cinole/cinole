@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You can often change your circumstances by changing your attitude.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;If you want to find the secrets of the universe, think in terms of energy, frequency and vibration. &quot;</em> <br>
+— Nikola Tesla
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
