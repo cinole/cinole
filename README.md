@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Just get out and do it. You will be very, very glad that you did.&quot;</em> <br>
-— Christopher McCandless
+<em>&quot;He who permits himself to tell a lie once, finds it much easier to do it the second time.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
