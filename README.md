@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you.&quot;</em> <br>
-— Jeffrey Gitomer
+<em>&quot;We are always complaining that our days are few, and acting as though there would be no end of them.  &quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
