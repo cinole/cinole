@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;While we may not be able to control all that happens to us, we can control what happens inside us.&quot;</em> <br>
-— Benjamin Franklin
+<em>&quot;To avoid criticism, do nothing, say nothing, and be nothing.&quot;</em> <br>
+— Elbert Hubbard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
