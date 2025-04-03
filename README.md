@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You will never do anything in this world without courage. It is the greatest quality of the mind next to honor.&quot;</em> <br>
-— James Allen
+<em>&quot;A flower falls, even though we love it; and a weed grows, even though we do not love it.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
