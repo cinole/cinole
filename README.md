@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have?&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;Would you rather learn to deal with the truth now than be forced to do so later on?&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
