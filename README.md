@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;All I can do is be me, whoever that is.&quot;</em> <br>
-— Bob Dylan
+<em>&quot;Attitude, not aptitude, determines altitude.  &quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
