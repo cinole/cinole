@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.&quot;</em> <br>
-— Mark Twain
+<em>&quot;There is no such thing as a great talent without great willpower.&quot;</em> <br>
+— Honore de Balzac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
