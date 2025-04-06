@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Life is either a daring adventure, or nothing.&quot;</em> <br>
-— Helen Keller
+<em>&quot;The future will be shaped by those willing to commit their minds and their bodies to the task.&quot;</em> <br>
+— Robert F. Kennedy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
