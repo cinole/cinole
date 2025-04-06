@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;At the center of your being you have the answer; you know who you are and you know what you want.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
