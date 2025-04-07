@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;In the middle of difficulty lies opportunity.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;Life is trying things to see if they work.&quot;</em> <br>
+— Ray Bradbury
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
