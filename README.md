@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Doing the best at this moment puts you in the best place for the next moment.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;Re-examine all that you have been told... dismiss that which insults your soul.&quot;</em> <br>
+— Walt Whitman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
