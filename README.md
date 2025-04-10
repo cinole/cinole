@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;However difficult life may seem, there is always something you can do and succeed at.&quot;</em> <br>
-— Stephen Hawking
+<em>&quot;A hero is an ordinary person doing things in an extra ordinary way.&quot;</em> <br>
+— Christopher Reeve
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
