@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I have lived with several Zen masters -- all of them cats.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;You're always free to change your mind and choose a different future, or a different past.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
