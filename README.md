@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When you are totally at peace with yourself, nothing can shake you.&quot;</em> <br>
-— Deepam Chaterjee
+<em>&quot;If you're afraid to die, you're afraid to live. You can't have one without the other.&quot;</em> <br>
+— Rita Mae Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
