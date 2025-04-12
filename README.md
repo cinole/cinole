@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Either you run the day or the day runs you.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Don't be afraid to give up the good to go for the great.&quot;</em> <br>
+— John D. Rockefeller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
