@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A hero is an ordinary person doing things in an extra ordinary way.&quot;</em> <br>
-— Christopher Reeve
+<em>&quot;Be regular and orderly in your life, so that you may be violent and original in your work.&quot;</em> <br>
+— Gustave Flaubert
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
