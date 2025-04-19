@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The people who are crazy enough to think they can change the world are the ones who do.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit.&quot;</em> <br>
+— Conrad Hilton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
