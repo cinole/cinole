@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;What you are afraid of is never as bad as what you imagine. The fear you let build up in your mind is worse than the situation that actually exists.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;The meaning of life is that it stops.&quot;</em> <br>
+— Franz Kafka
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
