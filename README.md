@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It's your road, and yours alone, others may walk it with you, but no one can walk it for you.&quot;</em> <br>
-— Rumi
+<em>&quot;Numbing the pain for a while will make it worse when you finally feel it.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
