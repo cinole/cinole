@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The present moment is filled with joy and happiness. If you are attentive, you will see it.&quot;</em> <br>
-— Thich Nhat Hanh
+<em>&quot;Champions keep playing until they get it right.&quot;</em> <br>
+— Billie Jean King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
