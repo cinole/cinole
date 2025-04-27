@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Success is not how high you have climbed, but how you make a positive difference to the world.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;By words the mind is winged.&quot;</em> <br>
+— Aristophanes
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
