@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;Give more than you think you can, trusting that you are richer than you think.&quot;</em> <br>
+— Jon Kabat-Zinn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
