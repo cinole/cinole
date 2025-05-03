@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest work that kindness does to others is that it makes them kind themselves.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;If you try to micromanage yourself all you're going to do is make yourself miserable.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
