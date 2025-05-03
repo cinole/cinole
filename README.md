@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;By seeking and blundering we learn.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;Out of suffering have emerged the strongest souls; the most massive characters are seared with scars.&quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
