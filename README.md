@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Your next step is simple. You are the first domino.&quot;</em> <br>
-— Gary Keller
+<em>&quot;In the long run, the sharpest weapon of all is a kind and gentle spirit.&quot;</em> <br>
+— Anne Frank
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
