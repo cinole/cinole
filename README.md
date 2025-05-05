@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;Money poisons you when you've got it, and starves you when you haven't.&quot;</em> <br>
+— D. H. Lawrence
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
