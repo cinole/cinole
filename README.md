@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It's what you do in the present that will redeem the past and thereby change the future.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;Memory is the scribe of the soul.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
