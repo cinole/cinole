@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Doing the best at this moment puts you in the best place for the next moment.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;Be like a postage stamp. Stick to it until you get there.&quot;</em> <br>
+— Bob Proctor
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
