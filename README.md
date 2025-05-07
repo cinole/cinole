@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Anger begins with folly, and ends with repentance. &quot;</em> <br>
+— Beverly Sills
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
