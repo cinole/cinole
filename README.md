@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You want to live but do you know how to live? You are scared of dying and tell me, is the kind of life you lead really any different from being dead?&quot;</em> <br>
-— Seneca
+<em>&quot;Wisdom is doing now what you are going to be happy with later on.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
