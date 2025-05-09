@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations.&quot;</em> <br>
-— Wayne Gretzky
+<em>&quot;Science can flourish only in an atmosphere of free speech. &quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
