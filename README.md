@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them.&quot;</em> <br>
-— Denis Waitley
+<em>&quot;Love doesn't need reason. It speaks from the irrational wisdom of the heart.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
