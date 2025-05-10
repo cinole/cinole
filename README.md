@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You can't tell big dreams to small minded people.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
