@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The true soldier fights not because he hates what is in front of him, but because he loves what is behind him.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
