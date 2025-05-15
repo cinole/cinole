@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Optimism is the one quality more associated with success and happiness than any other.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;The goal is not to show how great you are to others, but how vulnerable you are to yourself.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
