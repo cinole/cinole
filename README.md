@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;The true soldier fights not because he hates what is in front of him, but because he loves what is behind him.&quot;</em> <br>
+— Gilbert Chesterton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
