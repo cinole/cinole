@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Peace if possible, truth at all costs.&quot;</em> <br>
-— Martin Luther
+<em>&quot;First comes the shy wish. Then you must have the heart to have the dream. Then, you work, and work.  &quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
