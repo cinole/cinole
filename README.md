@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Instead of worrying about what you cannot control, shift your energy to what you can create.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
