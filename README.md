@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has.&quot;</em> <br>
-— Margaret Mead
+<em>&quot;You have within you right now, everything you need to deal with whatever the world can throw at you.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
