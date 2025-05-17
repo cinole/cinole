@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be happy now, without reason - or you never will be at all.&quot;</em> <br>
-— Dan Millman
+<em>&quot;Thinking is difficult, that's why most people judge.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
