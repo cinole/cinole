@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To arrive at the simplest truth requires years of contemplation.&quot;</em> <br>
-— Isaac Newton
+<em>&quot;When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. &quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
