@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Love and compassion are necessities, not luxuries. Without them, humanity cannot survive.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;When the fish is caught we pay no more attention to the trap.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
