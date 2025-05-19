@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Believe nothing you hear, and only one half that you see.&quot;</em> <br>
-— Edgar Allan Poe
+<em>&quot;The eye with which I see God is the same eye with which God sees me.&quot;</em> <br>
+— Meister Eckhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
