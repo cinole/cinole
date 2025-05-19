@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
