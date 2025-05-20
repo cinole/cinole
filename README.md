@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To get angry is like to revenge yourself for the guilt of others.&quot;</em> <br>
-— Jonathan Swift
+<em>&quot;We ordinary people must forge our own beauty.&quot;</em> <br>
+— Kenji Miyazawa
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
