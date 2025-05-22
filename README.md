@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. &quot;</em> <br>
-— Franz Kafka
+<em>&quot;In the middle of difficulty lies opportunity.&quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
