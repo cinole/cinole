@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Know the rules well, so you can break them effectively.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. &quot;</em> <br>
+— Franz Kafka
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
