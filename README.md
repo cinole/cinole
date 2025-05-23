@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A strong man overcomes an obstacle, a wise man goes the whole way.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;The trouble with the rat race is that even if you win, you're still a rat.&quot;</em> <br>
+— Lily Tomlin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
