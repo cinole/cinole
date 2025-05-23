@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Love is not about possession. Love is about appreciation.&quot;</em> <br>
-— Osho
+<em>&quot;It's your road, and yours alone, others may walk it with you, but no one can walk it for you.&quot;</em> <br>
+— Rumi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
