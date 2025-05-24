@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Obstacles are those frightful things you see when you take your eyes off your goals.&quot;</em> <br>
-— Sydney Smith
+<em>&quot;A man with outward courage dares to die: a man with inner courage dares to live.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
