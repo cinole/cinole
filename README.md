@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Sometimes it is more important to discover what one cannot do, than what one can do.&quot;</em> <br>
-— Lin Yutang
+<em>&quot;Stop wasting time looking at someone else's reality while doing nothing about yours.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
