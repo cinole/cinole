@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Some of us learn from other people's mistakes and the rest of us have to be other people.  &quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
