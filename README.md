@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nothing ever goes away until it has taught us what we need to know.&quot;</em> <br>
-— Pema Chodron
+<em>&quot;When one does not have what one wants, one must want what one has.&quot;</em> <br>
+— Sigmund Freud
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
