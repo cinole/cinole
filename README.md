@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If the grass is greener on the other side, maybe that's because you're not taking good care of your grass.&quot;</em> <br>
-— Unknown
+<em>&quot;Nothing ever goes away until it has taught us what we need to know.&quot;</em> <br>
+— Pema Chodron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
