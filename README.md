@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When reading, only read. When eating, only eat. When thinking, only think.&quot;</em> <br>
-— Seungsahn
+<em>&quot;Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves.&quot;</em> <br>
+— Adi Da Samraj
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
