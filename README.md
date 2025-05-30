@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Longevity is a fleeting moment that lasts forever.&quot;</em> <br>
-— Vidal Sassoon
+<em>&quot;There's more to life than being a passenger.&quot;</em> <br>
+— Amelia Earhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
