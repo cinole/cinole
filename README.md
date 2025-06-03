@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;The most difficult times for many of us are the ones we give ourselves.&quot;</em> <br>
+— Pema Chodron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
