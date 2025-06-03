@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus.&quot;</em> <br>
-— Alexander Graham Bell
+<em>&quot;Insanity: doing the same thing over and over again and expecting different results.&quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
