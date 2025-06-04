@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Engage in those actions and thoughts that nurture the good qualities you want to have.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have?&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
