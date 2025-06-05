@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Knowing your own darkness is the best method for dealing with the darknesses of other people.&quot;</em> <br>
-— Carl Jung
+<em>&quot;Successful people tend to become more successful because they are always thinking about their successes.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
