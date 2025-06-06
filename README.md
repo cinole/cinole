@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Mistake is a mistake only if you make it twice.&quot;</em> <br>
-— Robin Sharma
+<em>&quot;The moment you doubt whether you can fly, you cease for ever to be able to do it.&quot;</em> <br>
+— James Matthew Barrie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
