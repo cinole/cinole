@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When you judge another, you do not define them, you define yourself&quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
