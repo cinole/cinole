@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The best revenge is to be unlike him who performed the injury.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;When the fish is caught we pay no more attention to the trap.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
