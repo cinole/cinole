@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If someone betrays you once, it's their fault; if they betray you twice, it's your fault.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;He will win who knows when to fight and when not to fight.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
