@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is no fear for one whose mind is not filled with desires.&quot;</em> <br>
-— Buddha
+<em>&quot;A good character is the best tombstone. Carve your name on hearts, not on marble.&quot;</em> <br>
+— Charles Spurgeon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
