@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you don't know, the thing to do is not to get scared, but to learn.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. &quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
