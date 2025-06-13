@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Keep your face always toward the sunshine -  shadows will fall behind you.&quot;</em> <br>
-— Walt Whitman
+<em>&quot;You can never cross the ocean unless you have the courage to lose sight of the shore.&quot;</em> <br>
+— Christopher Columbus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
