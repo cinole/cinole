@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Fortunate are those who take the first steps.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;It's not how much money you make, it's how much money you keep.&quot;</em> <br>
+— Robert Kiyosaki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
