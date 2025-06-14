@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The soul is neither born, and nor does it die.&quot;</em> <br>
-— Bhagavad Gita
+<em>&quot;If you can see it in your mind, you can hold it in your mind.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
