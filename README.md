@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability.&quot;</em> <br>
-— John Wooden
+<em>&quot;The big thing is to make a winning effort. I'm not obsessed with wins.&quot;</em> <br>
+— Morgan Wootten
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
