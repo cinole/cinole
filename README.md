@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
