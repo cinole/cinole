@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;What worries you, masters you.&quot;</em> <br>
-— John Locke
+<em>&quot;You win more from losing than winning.&quot;</em> <br>
+— Morgan Wootten
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
