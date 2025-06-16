@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Behind every beautiful thing, there's some kind of pain.&quot;</em> <br>
-— Bob Dylan
+<em>&quot;Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
