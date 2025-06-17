@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you go out looking for friends, you're going to find they are very scarce. If you go out to be a friend, you'll find them everywhere.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. &quot;</em> <br>
+— Martin Luther
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
