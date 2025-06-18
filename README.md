@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you try to micromanage yourself all you're going to do is make yourself miserable.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;Don't be afraid to stand for what you believe in, even if that means standing alone.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
