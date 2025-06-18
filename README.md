@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A successful man is one who can lay a firm foundation with the bricks others have thrown at him.  &quot;</em> <br>
-— David Brinkley
+<em>&quot;Wake up and smile! Wake up and be grateful!&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
