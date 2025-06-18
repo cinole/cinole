@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Your only obligation in any lifetime is to be true to yourself.&quot;</em> <br>
-— Richard Bach
+<em>&quot;A successful man is one who can lay a firm foundation with the bricks others have thrown at him.  &quot;</em> <br>
+— David Brinkley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
