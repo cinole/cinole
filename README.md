@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;People who bite the hand that feeds them usually lick the boot that kicks them.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;It is far easier to start something than it is to finish it.&quot;</em> <br>
+— Amelia Earhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
