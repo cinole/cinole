@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I would rather be hated for who I am than loved for who I'm not.  &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Anyone who wants to achieve a dream must stay strong, focused and steady.&quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
