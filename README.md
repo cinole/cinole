@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;First comes the shy wish. Then you must have the heart to have the dream. Then, you work, and work.  &quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
