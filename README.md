@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Do not bite at the bait of pleasure, till you know there is no hook beneath it.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;A gentleman is one who puts more into the world than he takes out.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
