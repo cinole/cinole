@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself.&quot;</em> <br>
-— Samuel Butler
+<em>&quot;Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence.&quot;</em> <br>
+— Sydney Smith
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
