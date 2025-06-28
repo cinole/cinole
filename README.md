@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The only real mistake is the one from which we learn nothing. &quot;</em> <br>
-— Henry Ford
+<em>&quot;Life has more imagination than we carry in our dreams.&quot;</em> <br>
+— Christopher Columbus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
