@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The single most powerful asset we all have is our mind.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Conscience is a dog that does not stop us from passing but that we cannot prevent from barking.&quot;</em> <br>
+— Nicolas Chamfort
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
