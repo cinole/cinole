@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Happiness is a gift and the trick is not to expect it, but to delight in it when it comes.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;You will never do anything in this world without courage. It is the greatest quality of the mind next to honor.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
