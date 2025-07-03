@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If we have no peace, it is because we have forgotten that we belong to each other.&quot;</em> <br>
-— Mother Teresa
+<em>&quot;Never was anything great achieved without danger.&quot;</em> <br>
+— Niccolo Machiavelli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
