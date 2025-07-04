@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You are free, and that is why you are lost.&quot;</em> <br>
-— Franz Kafka
+<em>&quot;The fastest way to change is to laugh at your own folly.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
