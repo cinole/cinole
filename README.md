@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The opposite of courage in our society is not cowardice... it is conformity.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;Nothing is too high for a man to reach, but he must climb with care and confidence&quot;</em> <br>
+— Hans Christian Andersen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
