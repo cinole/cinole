@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Happiness is the meaning and the purpose of life, the whole aim and end of human existence.&quot;</em> <br>
-— Aristotle
+<em>&quot;May you find grace as you surrender to life. May you find happiness, as you stop seeking it.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
