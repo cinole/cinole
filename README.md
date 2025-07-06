@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A Quitter never wins - and - a Winner never quits.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;Nothing endures but change.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
