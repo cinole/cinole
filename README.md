@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The more you praise and celebrate your life, the more there is in life to celebrate. &quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;It is not as important how we start, but how we finish.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
