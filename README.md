@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To belittle, you have to be little.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;Loving thoughts and actions are clearly beneficial for our physical and mental health.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
