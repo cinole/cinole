@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Emancipate yourself from mental slavery, none but ourselves can free our mind.&quot;</em> <br>
-— Bob Marley
+<em>&quot;If you've never eaten while crying you don t know what life tastes like.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
