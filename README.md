@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A man who dares to waste one hour of time has not discovered the value of life.&quot;</em> <br>
-— Charles Darwin
+<em>&quot;Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
