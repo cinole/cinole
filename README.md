@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;However difficult life may seem, there is always something you can do and succeed at.&quot;</em> <br>
-— Stephen Hawking
+<em>&quot;To escape from the world means that one's mind is not concerned with the opinions of the world.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
