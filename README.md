@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is startling to realize how much unbelief is necessary to make belief possible.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win.&quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
