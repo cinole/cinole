@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everyone wants to go to Heaven, but no one wants to die.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;To improve is to change, so to be perfect is to change often.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
