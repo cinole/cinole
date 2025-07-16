@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When you're curious, you find lots of interesting things to do.&quot;</em> <br>
-— Walt Disney
+<em>&quot;The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
