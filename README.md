@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.&quot;</em> <br>
-— Helen Keller
+<em>&quot;One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
