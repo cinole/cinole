@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction.&quot;</em> <br>
-— Criss Jami
+<em>&quot;What's the point in being smart enough to read, if everything you read makes you dumb?&quot;</em> <br>
+— C. Sean McGee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
