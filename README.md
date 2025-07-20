@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Absorb what is useful, discard what is not, add what is uniquely your own.&quot;</em> <br>
-— Bruce Lee
+<em>&quot;You have power over your mind - not outside events. Realize this, and you will find strength.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
