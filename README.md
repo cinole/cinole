@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;He suffers more than necessary, who suffers before it is necessary.  &quot;</em> <br>
-— Seneca
+<em>&quot;Sometimes you have to travel a long way to find what is near.&quot;</em> <br>
+— Paulo Coelho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
