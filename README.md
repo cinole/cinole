@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A fool sees himself as another, but a wise man sees others as himself.&quot;</em> <br>
-— Dogen
+<em>&quot;Do something worth remembering.&quot;</em> <br>
+— Elvis Presley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
