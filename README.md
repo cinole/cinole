@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You use a glass mirror to see your face; you use works of art to see your soul.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;It's wise to tell the truth. It's even wiser to tell it kindly.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
