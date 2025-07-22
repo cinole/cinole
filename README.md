@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I am always doing that which I can not do, in order that I may learn how to do it.&quot;</em> <br>
-— Pablo Picasso
+<em>&quot;Success in any endeavor depends on the degree to which it is an expression of your true self. &quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
