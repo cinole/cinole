@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A random act of kindness, no matter how small, can make a tremendous impact on someone else's life.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Each day provides it's own gifts.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
