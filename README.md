@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Our greatest fears lie in anticipation.&quot;</em> <br>
-— Honore de Balzac
+<em>&quot;It is dangerous to be right in matters on which the established authorities are wrong.&quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
