@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The time is always right to do what is right.&quot;</em> <br>
-— Martin Luther King, Jr.
+<em>&quot;How many times do you have to get hit over the head until you figure out who's hitting you?&quot;</em> <br>
+— Harry S. Truman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
