@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Looking after my health today gives me a better hope for tomorrow. &quot;</em> <br>
-— Anne Wilson Schaef
+<em>&quot;A rational person can find peace by cultivating indifference to things outside of their control.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
