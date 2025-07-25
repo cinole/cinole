@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Silence is a source of great strength.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. &quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
