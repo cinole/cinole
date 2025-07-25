@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A rational person can find peace by cultivating indifference to things outside of their control.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;Most people fail in life not because they aim too high and miss, but because they aim too low and hit.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
