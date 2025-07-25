@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you're not failing every now and again, it's a sign you're not doing anything very innovative.&quot;</em> <br>
-— Woody Allen
+<em>&quot;It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
