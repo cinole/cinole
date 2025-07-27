@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;When you judge another, you do not define them, you define yourself&quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
