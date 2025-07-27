@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The giving of love is an education in itself.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;Hardly anybody recognizes the most significant moments of their life at the time they happen.&quot;</em> <br>
+— W.P. Kinsella
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
