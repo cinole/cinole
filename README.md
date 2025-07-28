@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Let not your mind run on what you lack as much as on what you have already.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;We meet ourselves time and again in a thousand disguises on the path of life.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
