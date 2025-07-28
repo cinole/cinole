@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Once you choose hope, anything's possible.&quot;</em> <br>
-— Christopher Reeve
+<em>&quot;We have to live life with a sense of urgency so not a minute is wasted.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
