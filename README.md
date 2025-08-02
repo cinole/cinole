@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest.&quot;</em> <br>
-— Seungsahn
+<em>&quot;Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
