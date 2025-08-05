@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Failure is an option here. If things are not failing, you are not innovating enough.&quot;</em> <br>
-— Elon Musk
+<em>&quot;The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune. &quot;</em> <br>
+— Charles Swindoll
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
