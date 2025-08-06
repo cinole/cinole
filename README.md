@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them.&quot;</em> <br>
-— Denis Waitley
+<em>&quot;Walking with a friend in the dark is better than walking alone in the light.&quot;</em> <br>
+— Helen Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
