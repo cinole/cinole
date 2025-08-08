@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To be able to forget means sanity.&quot;</em> <br>
-— Jack London
+<em>&quot;As a matter of fact is an expression that precedes many an expression that isn't.&quot;</em> <br>
+— Laurence J. Peter
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
