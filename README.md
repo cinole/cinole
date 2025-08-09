@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Dreams provide nourishment for the soul, just as a meal does for the body.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;Persistence is very important. You should not give up unless you are forced to give up.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
