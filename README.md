@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Persistence is very important. You should not give up unless you are forced to give up.&quot;</em> <br>
-— Elon Musk
+<em>&quot;The dreamers are the saviors of the worlds.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
