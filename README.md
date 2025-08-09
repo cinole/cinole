@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The destiny of man is in his own soul. &quot;</em> <br>
-— Herodotus
+<em>&quot;While we may not be able to control all that happens to us, we can control what happens inside us.&quot;</em> <br>
+— Benjamin Franklin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
