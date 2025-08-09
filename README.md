@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all.&quot;</em> <br>
-— Miguel de Cervantes
+<em>&quot;The sweetest pleasure arises from difficulties overcome.&quot;</em> <br>
+— Publilius Syrus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
