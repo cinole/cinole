@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Words are the clothes thoughts wear.&quot;</em> <br>
-— Samuel Beckett
+<em>&quot;The one who praises you is a thief. The one who criticizes you is your true friend.&quot;</em> <br>
+— Seungsahn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
