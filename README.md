@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Quality is more important than quantity. One home run is much better than two doubles.&quot;</em> <br>
+— Steve Jobs
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
