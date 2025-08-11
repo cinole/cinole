@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest discovery of all time is that a person can change their future by merely changing their attitude.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
