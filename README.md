@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;It does not do to dwell on dreams and forget to live, remember that.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
