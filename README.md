@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest of all mistakes is to do nothing because you think you can only do a little.  &quot;</em> <br>
-— Zig Ziglar
+<em>&quot;You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
