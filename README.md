@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;No need to hurry. No need to sparkle. No need to be anybody but oneself.&quot;</em> <br>
-— Virginia Woolf
+<em>&quot;Show me a hero, and I'll write you a tragedy.&quot;</em> <br>
+— F. Scott Fitzgerald
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
