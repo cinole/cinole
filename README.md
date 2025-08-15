@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I cannot make my days longer so I strive to make them better.&quot;</em> <br>
-— Henry David Thoreau
+<em>&quot;When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
