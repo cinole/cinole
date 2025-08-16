@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Hope means hoping when everything seems hopeless.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Greatness comes from living with purpose and passion.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
