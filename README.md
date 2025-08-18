@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Nothing is too high for a man to reach, but he must climb with care and confidence&quot;</em> <br>
+— Hans Christian Andersen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
