@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good afternoon 👋
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Who you are is defined by what you're willing to struggle for.&quot;</em> <br>
-— Mark Manson
+<em>&quot;Opportunity is missed by most people because it is dressed in overalls and looks like work.&quot;</em> <br>
+— Thomas Edison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
