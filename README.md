@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To create more positive results in your life, replace 'if only' with 'next time'.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;Catch, then, O catch the transient hour; Improve each moment as it flies! &quot;</em> <br>
+— St. Jerome
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
