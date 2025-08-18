@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Catch, then, O catch the transient hour; Improve each moment as it flies! &quot;</em> <br>
-— St. Jerome
+<em>&quot;Be royal in your own fashion: act like a king to be treated like one.&quot;</em> <br>
+— Robert Greene
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
