@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Opportunity is missed by most people because it is dressed in overalls and looks like work.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;We think too much and feel too little.&quot;</em> <br>
+— Charlie Chaplin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
