@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you want to find the secrets of the universe, think in terms of energy, frequency and vibration. &quot;</em> <br>
-— Nikola Tesla
+<em>&quot;Happiness is not a goal...it's a by-product of a life well lived.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
