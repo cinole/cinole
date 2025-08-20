@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To avoid criticism, do nothing, say nothing, and be nothing.&quot;</em> <br>
-— Elbert Hubbard
+<em>&quot;Quality is more important than quantity. One home run is much better than two doubles.&quot;</em> <br>
+— Steve Jobs
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
