@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Decide upon your major definite purpose in life and then organize all your activities around it.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on.&quot;</em> <br>
+— Steve Maraboli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
