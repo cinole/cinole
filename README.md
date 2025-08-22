@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Go and do the things you can't. That is how you get to do them.&quot;</em> <br>
-— Pablo Picasso
+<em>&quot;If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
