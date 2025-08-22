@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Make each day a new horizon.&quot;</em> <br>
-— Christopher McCandless
+<em>&quot;Your worth consists in what you are and not in what you have.&quot;</em> <br>
+— Thomas Edison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
