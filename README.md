@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Far more crucial than what we know or do not know is what we do not want to know.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
