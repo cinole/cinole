@@ -1,4 +1,4 @@
-### Good afternoon 👋
+### Good evening ☕
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Walk towards the sunshine, and the shadows will fall behind you.&quot;</em> <br>
-— Mary Engelbreit
+<em>&quot;Older men declare war. But it is youth that must fight and die.&quot;</em> <br>
+— Herbert Hoover
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
