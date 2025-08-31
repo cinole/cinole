@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't change your mind just because people are offended; change your mind if you're wrong.&quot;</em> <br>
-— Criss Jami
+<em>&quot;Remember that the best relationship is one in which your love for each other exceeds your need for each other.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
