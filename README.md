@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't bother people for help without first trying to solve the problem yourself.&quot;</em> <br>
-— Colin Powell
+<em>&quot;Life can only be understood backwards; but it must be lived forwards.&quot;</em> <br>
+— Soren Kierkegaard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
