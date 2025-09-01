@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about.&quot;</em> <br>
+— Franklin D. Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
