@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Distant water does not put out a nearby fire.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Never stand begging for that which you have the power to earn.&quot;</em> <br>
+— Miguel de Cervantes
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
