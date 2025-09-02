@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The only real security that a man can have in this world is a reserve of knowledge, experience and ability. &quot;</em> <br>
-— Henry Ford
+<em>&quot;We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world.&quot;</em> <br>
+— Gabor Mate
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
