@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Honesty is the first chapter in the book of wisdom.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;You can start changing our world for the better daily, no matter how small the action.&quot;</em> <br>
+— Nelson Mandela
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
