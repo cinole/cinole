@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;Heroes don't need to talk about what they did.&quot;</em> <br>
+— W.P. Kinsella
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
