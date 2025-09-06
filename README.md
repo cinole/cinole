@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Some people want it to happen, some wish it would happen, others make it happen.&quot;</em> <br>
-— Michael Jordan
+<em>&quot;Happiness is a gift and the trick is not to expect it, but to delight in it when it comes.&quot;</em> <br>
+— Charles Dickens
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
