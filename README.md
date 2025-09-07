@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted.&quot;</em> <br>
-— Robert Collier
+<em>&quot;We can see through others only when we can see through ourselves.&quot;</em> <br>
+— Bruce Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
