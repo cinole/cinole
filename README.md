@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on.&quot;</em> <br>
-— Criss Jami
+<em>&quot;Some people find fault like there is a reward for it.  &quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
