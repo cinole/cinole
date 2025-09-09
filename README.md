@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It doesn't matter if the glass is half empty or half full. Be grateful you have a glass - you're the only person that can decide what's in it.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;The whole of life, from the moment you are born to the moment you die, is a process of learning.&quot;</em> <br>
+— Jiddu Krishnamurti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
