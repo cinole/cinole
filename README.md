@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Opportunities multiply as they are seized.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Freeing oneself from words is liberation. &quot;</em> <br>
+— Bodhidharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
