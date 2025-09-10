@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We are willing to believe anything other than the truth.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;How to get more opportunity: Create more opportunity for others.&quot;</em> <br>
+— Jack Butcher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
