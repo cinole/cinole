@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Change yourself and you have done your part in changing the world.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;Good things aren't supposed to just fall into your lap.&quot;</em> <br>
+— Audrey Hepburn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
