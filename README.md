@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everyone sees what you appear to be, few experience what you really are.&quot;</em> <br>
-— Niccolo Machiavelli
+<em>&quot;Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire?&quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
