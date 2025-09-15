@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;For fast-acting relief try slowing down.&quot;</em> <br>
-— Lily Tomlin
+<em>&quot;Take care of your cents: dollars will take care of themselves.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
