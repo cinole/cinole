@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The secret of life isn't what happens to you, but what you do with what happens to you.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;Live as if you were to die tomorrow. Learn as if you were to live forever.&quot;</em> <br>
+— Mahatma Gandhi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
