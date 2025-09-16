@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Forgive those who have hurt you.&quot;</em> <br>
-— Les Brown
+<em>&quot;Those who can make you believe absurdities can make you commit atrocities. &quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
