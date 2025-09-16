@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Those who can make you believe absurdities can make you commit atrocities. &quot;</em> <br>
-— Voltaire
+<em>&quot;Wrong turns are as important as right turns. More important, sometimes.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
