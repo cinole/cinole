@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream.&quot;</em> <br>
-— Unknown
+<em>&quot;Love is the energy of life.&quot;</em> <br>
+— Robert Browning
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
