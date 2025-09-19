@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Education breeds confidence. Confidence breeds hope. Hope breeds peace.&quot;</em> <br>
-— Confucius
+<em>&quot;If you aren't sure which way to do something, do it both ways and see which works better.&quot;</em> <br>
+— John Carmack
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
