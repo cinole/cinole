@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Doing what you love is the cornerstone of having abundance in your life. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Life is really simple, but men insist on making it complicated. &quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
