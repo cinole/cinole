@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;All that we see or seem is but a dream within a dream.&quot;</em> <br>
-— Edgar Allan Poe
+<em>&quot;Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do.&quot;</em> <br>
+— Elvis Presley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
