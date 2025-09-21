@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We are always complaining that our days are few, and acting as though there would be no end of them.  &quot;</em> <br>
-— Seneca
+<em>&quot;It doesn't matter where you are coming from. All that matters is where you are going. &quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
