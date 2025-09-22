@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The only lost cause is one we give up on before we enter the struggle.&quot;</em> <br>
-— Vaclav Havel
+<em>&quot;Great things are not accomplished by those who yield to trends and fads and popular opinion.&quot;</em> <br>
+— Jack Kerouac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
