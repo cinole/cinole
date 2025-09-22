@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Great things are not accomplished by those who yield to trends and fads and popular opinion.&quot;</em> <br>
-— Jack Kerouac
+<em>&quot;There is nothing more truly artistic than to love people.&quot;</em> <br>
+— Vincent van Gogh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
