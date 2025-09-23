@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;It is our experiences that mold us into who we are...during times of adversity our true character will show.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
