@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;A man is literally what he thinks.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
