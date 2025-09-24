@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Over time, loneliness gets inside you and doesn't go away.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;Peace begins with a smile.&quot;</em> <br>
+— Mother Teresa
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
