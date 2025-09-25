@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Re-examine all that you have been told... dismiss that which insults your soul.&quot;</em> <br>
-— Walt Whitman
+<em>&quot;You can discover what your enemy fears most by observing the means he uses to frighten you.&quot;</em> <br>
+— Eric Hoffer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
