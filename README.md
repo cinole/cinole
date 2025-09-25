@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it.&quot;</em> <br>
-— Alexandre Dumas
+<em>&quot;Life has the name of life, but in reality it is death.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
