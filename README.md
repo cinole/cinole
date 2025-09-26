@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;People who bite the hand that feeds them usually lick the boot that kicks them.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;The only way to 'find out if it will work out' is to do it.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
