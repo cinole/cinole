@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You already have every characteristic necessary for success if you recognize, claim, develop and use them.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;All human wisdom is contained in these two words - Wait and Hope&quot;</em> <br>
+— Alexandre Dumas
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
