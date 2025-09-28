@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A wise man will be master of his mind, a fool will be its slave.&quot;</em> <br>
-— Publilius Syrus
+<em>&quot;My instinct is always to seek out challenges as opposed to avoiding them.&quot;</em> <br>
+— Josh Waitzkin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
