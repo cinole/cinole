@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;My powers are ordinary. Only my application brings me success.&quot;</em> <br>
-— Isaac Newton
+<em>&quot;Take away love and our earth is a tomb.&quot;</em> <br>
+— Robert Browning
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
