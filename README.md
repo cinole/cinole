@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Strive for excellence, not perfection, because we don't live in a perfect world.&quot;</em> <br>
-— Joyce Meyer
+<em>&quot;Adversity is the tempering of one's mettle. Without it, we cannot know any true meaning in our accomplishments.&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
