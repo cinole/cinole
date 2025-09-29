@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you think you can do a thing or think you can't do a thing, you're right.&quot;</em> <br>
-— Henry Ford
+<em>&quot;Getting lost along your path is a part of finding the path you are meant to be on.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
