@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Being in a good frame of mind helps keep one in the picture of health.&quot;</em> <br>
-— Unknown
+<em>&quot;Victory is always possible for the person who refuses to stop fighting.&quot;</em> <br>
+— Napoleon Hill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
