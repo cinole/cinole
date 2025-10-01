@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Happiness is the absence of the striving for happiness.&quot;</em> <br>
-— Zhuangzi
+<em>&quot;Happiness is pretty simple: someone to love, something to do, something to look forward to.&quot;</em> <br>
+— Rita Mae Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
