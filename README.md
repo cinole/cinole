@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Happiness is pretty simple: someone to love, something to do, something to look forward to.&quot;</em> <br>
-— Rita Mae Brown
+<em>&quot;We must not sit down and wait for miracles. Up and be going!&quot;</em> <br>
+— John Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
