@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Cultivate the merry heart, develop the happiness habit, and life will become a continual feast.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;If life were predictable it would cease to be life, and be without flavor.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
