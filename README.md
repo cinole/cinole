@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Throw your heart over the bar and your body will follow.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;The more you like yourself, the less you are like anyone else, which makes you unique.&quot;</em> <br>
+— Walt Disney
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
