@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Loyalty and friendship are the most precious possessions a man can have.&quot;</em> <br>
-— Herbert Hoover
+<em>&quot;If you think you can do a thing or think you can't do a thing, you're right.&quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
