@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is not what we get. But who we become, what we contribute... that gives meaning to our lives.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;The only way to make sense out of change is to plunge into it, move with it, and join the dance.&quot;</em> <br>
+— Alan Watts
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
