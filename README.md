@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Identification with our mind causes thought to become compulsive.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;Fear of death is fear of the Unknown.&quot;</em> <br>
+— Adi Da Samraj
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
