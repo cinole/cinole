@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Better the cottage where one is merry than the palace where one weeps.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you.&quot;</em> <br>
+— Jeffrey Gitomer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
