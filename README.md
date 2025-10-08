@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Never do things others can do and will do if there are things others cannot do or will not do.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;Change will not come if we wait for some other person, or if we wait for some other time.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
