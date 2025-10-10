@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is an essence of when you are fearless, you become more creative.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard.&quot;</em> <br>
+— Colin Powell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
