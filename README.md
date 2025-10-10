@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You're braver than you believe, and stronger than you seem, and smarter than you think.&quot;</em> <br>
-— A.A. Milne
+<em>&quot;Better to die fighting for freedom than be a prisoner all the days of your life.&quot;</em> <br>
+— Bob Marley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
