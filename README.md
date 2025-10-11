@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over.&quot;</em> <br>
-— Joan Rivers
+<em>&quot;There is no right or wrong, only a series of possibilities that shift with each thought, feeling, and action that you experience.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
