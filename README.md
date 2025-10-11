@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To be great is to be misunderstood.&quot;</em> <br>
-— Ralph Waldo Emerson
+<em>&quot;As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others.&quot;</em> <br>
+— Audrey Hepburn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
