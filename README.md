@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It all depends on what you choose to believe.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;Among the things you can give and still keep are your word, a smile, and a grateful heart.&quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
