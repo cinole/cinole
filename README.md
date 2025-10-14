@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Zen insists that the whole trouble is just our failure to realize that there is no problem.&quot;</em> <br>
-— Bruce Lee
+<em>&quot;Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
