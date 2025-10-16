@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Study logic and math, because once you've mastered them, you won't fear any book.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;You give but little when you give of your possessions. It is when you give of yourself that you truly give.&quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
