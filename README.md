@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The one who boasts does so only out of a feeling of inferiority.&quot;</em> <br>
-— Alfred Adler
+<em>&quot;If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
