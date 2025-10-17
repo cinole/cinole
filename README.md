@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water.&quot;</em> <br>
-— Buddha
+<em>&quot;The significance of life is living.&quot;</em> <br>
+— Jiddu Krishnamurti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
