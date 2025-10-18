@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Men are equal; it is not birth but virtue that makes the difference.&quot;</em> <br>
-— Voltaire
+<em>&quot;Logic is like the sword - those who appeal to it shall perish by it.&quot;</em> <br>
+— Samuel Butler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
