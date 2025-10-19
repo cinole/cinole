@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Life would be tragic if it weren't funny.&quot;</em> <br>
-— Stephen Hawking
+<em>&quot;Life is much more successfully looked at from a single window.&quot;</em> <br>
+— F. Scott Fitzgerald
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
