@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Failure is not fatal, but failure to change might be.&quot;</em> <br>
-— John Wooden
+<em>&quot;If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
