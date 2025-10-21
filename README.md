@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have.&quot;</em> <br>
-— Gary Keller
+<em>&quot;In spite of everything, I shall rise again.&quot;</em> <br>
+— Vincent van Gogh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
