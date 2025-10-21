@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;People should pursue what they're passionate about. That will make them happier than pretty much anything else.&quot;</em> <br>
-— Elon Musk
+<em>&quot;The best teacher is experience and not through someone's distorted point of view.&quot;</em> <br>
+— Jack Kerouac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
