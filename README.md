@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Many of life's failures are people who did not realize how close they were to success when they gave up.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;A man is literally what he thinks.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
