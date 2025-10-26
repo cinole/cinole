@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change.&quot;</em> <br>
-— Mark Manson
+<em>&quot;There's a very deep connection among human beings. All we have to do is open our minds to it.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
