@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There's a very deep connection among human beings. All we have to do is open our minds to it.&quot;</em> <br>
-— Yanni
+<em>&quot;If I have seen further than others, it is by standing upon the shoulders of giants.&quot;</em> <br>
+— Isaac Newton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
