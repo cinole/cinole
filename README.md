@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You need to be doing fewer things for more effect instead of doing more things with side effects.&quot;</em> <br>
-— Gary Keller
+<em>&quot;Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding.&quot;</em> <br>
+— John D. Rockefeller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
