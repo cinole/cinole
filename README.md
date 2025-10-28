@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Art is the signature of civilizations. &quot;</em> <br>
-— Beverly Sills
+<em>&quot;The decisions of our past are the architects of our present.&quot;</em> <br>
+— Dan Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
