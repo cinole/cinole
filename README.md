@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Develop success from failures. Discouragement and failure are two of the surest stepping stones to success.&quot;</em> <br>
-— Dale Carnegie
+<em>&quot;The desire for more positive experience is itself a negative experience.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
