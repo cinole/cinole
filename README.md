@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't just sit there. Do something. The answers will follow.&quot;</em> <br>
-— Mark Manson
+<em>&quot;Originality is the fine art of remembering what you hear but forgetting where you heard it. &quot;</em> <br>
+— Laurence J. Peter
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
