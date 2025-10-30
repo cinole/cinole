@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;From morning till night, we should never rely on a single thing.&quot;</em> <br>
-— Huang Po
+<em>&quot;Act the way you want to be and soon you'll be the way you act.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
