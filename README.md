@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be where your enemy is not.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. &quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
