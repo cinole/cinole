@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you want to be successful, you have to jump, there's no way around it.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Sometimes a change of perspective is all it takes to see the light.&quot;</em> <br>
+— Dan Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
