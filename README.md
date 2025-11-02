@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
