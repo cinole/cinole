@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Mistakes are always forgivable, if one has the courage to admit them. &quot;</em> <br>
-— Bruce Lee
+<em>&quot;A man who cannot tolerate small misfortunes can never accomplish great things.&quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
