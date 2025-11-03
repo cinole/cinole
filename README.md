@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way.&quot;</em> <br>
-— Alan Watts
+<em>&quot;Leaders think and talk about solutions. Followers think and talk about the problems.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
