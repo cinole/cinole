@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Never waste a minute of your precious life thinking about people you don't like.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;When the time is gone, you can never get it back.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
