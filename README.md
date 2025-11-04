@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Remember we're all in this alone.&quot;</em> <br>
-— Lily Tomlin
+<em>&quot;In order to be irreplaceable one must always be different.&quot;</em> <br>
+— Coco Chanel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
