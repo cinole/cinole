@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Living life in style also means living a life of balance.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
