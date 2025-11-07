@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;In nature there is no alienation. Everything belongs.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;There is no sadder sight than a young pessimist.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
