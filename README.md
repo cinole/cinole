@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't wait for extraordinary opportunities. Seize common occasions and make them great.&quot;</em> <br>
-— Orison Swett Marden
+<em>&quot;Success is getting what you want, happiness is wanting what you get.&quot;</em> <br>
+— W.P. Kinsella
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
