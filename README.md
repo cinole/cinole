@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Death is not sad; the sad thing is that most people don't really live at all.&quot;</em> <br>
-— Dan Millman
+<em>&quot;Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you.&quot;</em> <br>
+— Peter Drucker
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
