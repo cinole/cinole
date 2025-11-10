@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To the mind that is still, the whole universe surrenders.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;A needle is not sharp at both ends. &quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
