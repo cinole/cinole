@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The most important thing is to enjoy your life, to be happy, it's all that matters.&quot;</em> <br>
-— Audrey Hepburn
+<em>&quot;You don't get in life what you want; you get in life what you are.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
