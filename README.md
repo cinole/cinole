@@ -1,4 +1,4 @@
-### Good night 😴
+### Good morning ☀️
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;In matters of style, swim with the current; in matters of principle, stand like a rock.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;A gentleman accepts the responsibility of his actions and bears the burden of their consequences.&quot;</em> <br>
+— William Faulkner
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
