@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If I can pay the bills, I'm happy.&quot;</em> <br>
-— Morgan Wootten
+<em>&quot;The most important thing is to enjoy your life, to be happy, it's all that matters.&quot;</em> <br>
+— Audrey Hepburn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
