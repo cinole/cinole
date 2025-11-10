@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The best way to predict your future is to create it.&quot;</em> <br>
-— Abraham Lincoln
+<em>&quot;A flower falls, even though we love it; and a weed grows, even though we do not love it.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
