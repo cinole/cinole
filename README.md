@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it.&quot;</em> <br>
+— James Matthew Barrie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
