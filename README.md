@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nourish the mind like you would your body. The mind cannot survive on junk food.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Man must use what he has, not hope for what is not.&quot;</em> <br>
+— G.I. Gurdjieff
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
