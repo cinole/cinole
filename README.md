@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Enlightenment is intimacy with all things.&quot;</em> <br>
-— Dogen
+<em>&quot;When you are able to employ your will always for constructive purposes, you become the controller of your destiny.&quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
