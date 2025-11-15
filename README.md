@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better.&quot;</em> <br>
-— Benjamin Mays
+<em>&quot;Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference.&quot;</em> <br>
+— Robert Frost
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
