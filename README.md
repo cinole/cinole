@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you want to keep your memories, you first have to live them.&quot;</em> <br>
-— Bob Dylan
+<em>&quot;Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better.&quot;</em> <br>
+— Benjamin Mays
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
