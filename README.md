@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Follow your instincts. That is where true wisdom manifests itself.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;If you want work well done, select a busy man; the other kind has no time.&quot;</em> <br>
+— Elbert Hubbard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
