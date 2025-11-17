@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You are never too old to set another goal or to dream a new dream.&quot;</em> <br>
-— Les Brown
+<em>&quot;We would accomplish many more things if we did not think of them as impossible.&quot;</em> <br>
+— Vince Lombardi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
