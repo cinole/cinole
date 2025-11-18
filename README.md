@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.&quot;</em> <br>
-— Mark Twain
+<em>&quot;The difference between impossible and possible is a willing heart.&quot;</em> <br>
+— Lolly Daskal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
