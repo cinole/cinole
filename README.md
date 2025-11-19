@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable.&quot;</em> <br>
-— Bhagavad Gita
+<em>&quot;The primary point of this existence is to live, and all living things move and grow.&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
