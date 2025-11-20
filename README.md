@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge.&quot;</em> <br>
-— Stephen Hawking
+<em>&quot;Don't let the silly little dramas of each day get you down. For you are here to do great things.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
