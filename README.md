@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Empty your mind, be formless, shapeless, like water.&quot;</em> <br>
-— Bruce Lee
+<em>&quot;Even a hare will bite when it is cornered. &quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
