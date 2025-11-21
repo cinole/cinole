@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest of empires, is the empire over one's self.&quot;</em> <br>
-— Publilius Syrus
+<em>&quot;Failure is feedback. Learn from it and move on.&quot;</em> <br>
+— Jack Butcher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
