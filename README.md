@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest gift that you can give to others is the gift of unconditional love and acceptance. &quot;</em> <br>
-— Brian Tracy
+<em>&quot;It is dangerous to be right in matters on which the established authorities are wrong.&quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
