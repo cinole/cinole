@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Appear weak when you are strong, and strong when you are weak.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Everything begins with an idea.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
