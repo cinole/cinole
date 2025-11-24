@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you believe you can, you can. If you believe you can't, then, well you can't.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;We are most nearly ourselves when we achieve the seriousness of the child at play.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
