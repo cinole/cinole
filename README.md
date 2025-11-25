@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A person hears only what they understand.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;How much pain they have cost us, the evils which have never happened.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
