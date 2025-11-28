@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Life is too short to waste your time on people who don't respect, appreciate, and value you.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;The traveler sees what he sees. The tourist sees what he has come to see.&quot;</em> <br>
+— Gilbert Chesterton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
