@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The traveler sees what he sees. The tourist sees what he has come to see.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Fools read fast. Geniuses reread.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
