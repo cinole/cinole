@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you want to see things just as they are, then you yourself must practice just as you are.&quot;</em> <br>
-— Dogen
+<em>&quot;You're never too old for anything.&quot;</em> <br>
+— Betty White
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
