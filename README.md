@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;If we did all the things we are capable of, we would literally astound ourselves.&quot;</em> <br>
+— Thomas Edison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
