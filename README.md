@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Fools read fast. Geniuses reread.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;The dream is free, but the hustle is sold separately.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
