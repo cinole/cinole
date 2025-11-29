@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You use a glass mirror to see your face; you use works of art to see your soul.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;I love fools' experiments. I am always making them.&quot;</em> <br>
+— Charles Darwin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
