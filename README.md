@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Closing your eyes and listening to silence is self-care.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
