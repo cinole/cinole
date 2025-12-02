@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You can discover what your enemy fears most by observing the means he uses to frighten you.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;The more you know, the more you know you don't know.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
