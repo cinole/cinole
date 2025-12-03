@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The chief cause of failure and unhappiness is trading what you want most for what you want right now.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Wisdom is the oneness of mind that guides and permeates all things.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
