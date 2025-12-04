@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The highest form of ignorance is when you reject something you don't know anything about. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Unless a man is master of his soul, all other kinds of mastery amount to little.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
