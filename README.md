@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A hopeless man is a very desperate and dangerous man, almost a dead man.&quot;</em> <br>
-— Robert F. Kennedy
+<em>&quot;Simplicity is a difficult thing to achieve.  &quot;</em> <br>
+— Charlie Chaplin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
