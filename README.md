@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding.&quot;</em> <br>
-— John D. Rockefeller
+<em>&quot;We are what we repeatedly do. Excellence, then, is not an act, but a habit.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
