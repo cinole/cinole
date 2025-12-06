@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Do not look for approval except for the consciousness of doing your best.&quot;</em> <br>
-— Andrew Carnegie
+<em>&quot;There are two kinds of perfect people: those who are dead, and those who have not been born yet.&quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
