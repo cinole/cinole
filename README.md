@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are two kinds of perfect people: those who are dead, and those who have not been born yet.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Decide whether or not the goal is worth the risks involved. If it is, stop worrying.&quot;</em> <br>
+— Amelia Earhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
