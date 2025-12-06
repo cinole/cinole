@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Decide whether or not the goal is worth the risks involved. If it is, stop worrying.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding.&quot;</em> <br>
+— John D. Rockefeller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
