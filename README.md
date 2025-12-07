@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Happiness is not the absence of problems, it's the ability to deal with them.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
