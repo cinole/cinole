@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;People do not decide their futures, they decide their habits and their habits decide their futures.&quot;</em> <br>
-— Gary Keller
+<em>&quot;It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
