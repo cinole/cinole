@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Music is like creating an emotional painting. The sounds are the colors.&quot;</em> <br>
-— Yanni
+<em>&quot;Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations.&quot;</em> <br>
+— Alfred Adler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
