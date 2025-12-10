@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Words used to attract the dull of wit are not to be relied on.&quot;</em> <br>
-— Huang Po
+<em>&quot;Respect was invented to cover the empty place where love should be.&quot;</em> <br>
+— Leo Tolstoy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
