@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The strongest and sweetest songs yet remain to be sung.&quot;</em> <br>
-— Walt Whitman
+<em>&quot;You'll get more from being a peacemaker than a warrior.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
