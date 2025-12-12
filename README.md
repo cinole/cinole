@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is far easier to start something than it is to finish it.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;Life without love is like a tree without blossoms or fruit.&quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
