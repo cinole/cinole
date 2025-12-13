@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;All problems are interpersonal relationship problems.&quot;</em> <br>
-— Alfred Adler
+<em>&quot;You just can't beat the person who never gives up. &quot;</em> <br>
+— Babe Ruth
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
