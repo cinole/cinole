@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Men go to far greater lengths to avoid what they fear than to obtain what they desire.&quot;</em> <br>
-— Dan Brown
+<em>&quot;You have to give up some of the old so that you can make room for the new.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
