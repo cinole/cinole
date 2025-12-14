@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everyone must choose one of two pains: The pain of discipline or the pain of regret.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Confidence is what you have before you understand the problem.&quot;</em> <br>
+— Woody Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
