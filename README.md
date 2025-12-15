@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;TEAMWORK: the fuel that allows common people attain uncommon results.&quot;</em> <br>
-— Andrew Carnegie
+<em>&quot;Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner.&quot;</em> <br>
+— Sonia Ricotti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
