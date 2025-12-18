@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Our greatest glory is not in never falling but in rising every time we fall.&quot;</em> <br>
-— Confucius
+<em>&quot;Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
