@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you're really truthful with yourself, it's a wonderful guidance.  &quot;</em> <br>
-— Charlie Chaplin
+<em>&quot;There is only one thing in the world worse than being talked about, and that is not being talked about. &quot;</em> <br>
+— Oscar Wilde
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
