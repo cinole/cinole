@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths.&quot;</em> <br>
-— Charles Spurgeon
+<em>&quot;At the end of the day, let there be no excuses, no explanations, no regrets.&quot;</em> <br>
+— Steve Maraboli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
