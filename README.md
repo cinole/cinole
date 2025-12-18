@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is only one thing in the world worse than being talked about, and that is not being talked about. &quot;</em> <br>
-— Oscar Wilde
+<em>&quot;Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths.&quot;</em> <br>
+— Charles Spurgeon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
