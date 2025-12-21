@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is not the knowing that is difficult, but the doing. &quot;</em> <br>
+<em>&quot;Small men think they are small; great men never know they are great. &quot;</em> <br>
 — Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
