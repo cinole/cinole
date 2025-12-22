@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;FOCUS - Follow One Course Until Successful&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;If there is a book that you want to read, but it hasn't been written yet, then you must write it.&quot;</em> <br>
+— Toni Morrison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
