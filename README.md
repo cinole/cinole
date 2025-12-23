@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The act of taking the first step is what separates the winners from the losers.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver.&quot;</em> <br>
+— Ayn Rand
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
