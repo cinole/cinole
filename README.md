@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You purchase pain with all that joy can give and die of nothing but a rage to live.&quot;</em> <br>
-— Alexander Pope
+<em>&quot;Our greatest glory is not in never falling but in rising every time we fall.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
