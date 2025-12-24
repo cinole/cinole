@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Blessed is he who expects nothing, for he shall never be disappointed.&quot;</em> <br>
-— Alexander Pope
+<em>&quot;Dreams have only one owner at a time. That's why dreamers are lonely.&quot;</em> <br>
+— William Faulkner
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
