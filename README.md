@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be true to yourself, help others, make each day your masterpiece&quot;</em> <br>
-— John Wooden
+<em>&quot;If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
