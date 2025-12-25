@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Short cuts make long delays.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;Happiness is the spiritual experience of living every minute with love, grace and gratitude.&quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
