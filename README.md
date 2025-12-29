@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Real growth comes through intense, difficult, and challenging situations.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;The man who asks a question is a fool for a minute, the man who does not ask is a fool for life.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
