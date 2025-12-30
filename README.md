@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The only time you run out of chances is when you stop taking them.&quot;</em> <br>
-— Unknown
+<em>&quot;Life was meant to be lived, and curiosity must be kept alive. One must never, for whatever reason, turn his back on life.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
