@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You can't climb the ladder of success with your hands in your pockets.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;You're on earth. There's no cure for that.&quot;</em> <br>
+— Samuel Beckett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
