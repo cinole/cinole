@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A memory is a beautiful thing, it's almost a desire that you miss.&quot;</em> <br>
-— Gustave Flaubert
+<em>&quot;There is no greatness where there is not simplicity, goodness, and truth.&quot;</em> <br>
+— Leo Tolstoy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
