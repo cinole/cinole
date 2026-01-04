@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability.&quot;</em> <br>
-— John Wooden
+<em>&quot;Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more. &quot;</em> <br>
+— Nikola Tesla
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
