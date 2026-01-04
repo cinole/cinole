@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Better a diamond with a flaw than a pebble without one.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Boldness makes even the smallest animal dangerous.&quot;</em> <br>
+— Robert Greene
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
