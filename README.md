@@ -1,4 +1,4 @@
-### Happy weekend 🏝️
+### Good night 😴
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Confidence is like a dragon where, for every head cut off, two more heads grow back.&quot;</em> <br>
-— Criss Jami
+<em>&quot;Life is just the same as learning to swim. Do not be afraid of making mistakes, for there is no other way of learning how to live!&quot;</em> <br>
+— Alfred Adler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
