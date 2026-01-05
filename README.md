@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Walk towards the sunshine, and the shadows will fall behind you.&quot;</em> <br>
-— Mary Engelbreit
+<em>&quot;The man who removes a mountain begins by carrying away small stones.&quot;</em> <br>
+— William Faulkner
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
