@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Throw me to the wolves and I will return leading the pack.  &quot;</em> <br>
-— Seneca
+<em>&quot;Live as if you were to die tomorrow. Learn as if you were to live forever.&quot;</em> <br>
+— Mahatma Gandhi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
