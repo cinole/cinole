@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Take interest and even delight in doing the small things well.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
