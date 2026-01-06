@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I am thankful to all who said no to me. It is because of them that I'm doing it myself.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;Successful people tend to become more successful because they are always thinking about their successes.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
