@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Choose a job you love, and you will never have to work a day in your life. &quot;</em> <br>
-— Confucius
+<em>&quot;Life is too short to waste your time on people who don't respect, appreciate, and value you.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
