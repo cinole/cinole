@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot.&quot;</em> <br>
-— Wayne Gretzky
+<em>&quot;To live outside the law, you must be honest. &quot;</em> <br>
+— Bob Dylan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
