@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You are the only real obstacle in your path to a fulfilling life.&quot;</em> <br>
-— Les Brown
+<em>&quot;Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death.&quot;</em> <br>
+— Socrates
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
