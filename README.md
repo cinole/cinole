@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Intelligent people make many mistakes because they cannot believe the world is really as foolish as it is.&quot;</em> <br>
-— Nicolas Chamfort
+<em>&quot;Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
