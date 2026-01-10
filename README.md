@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive.&quot;</em> <br>
-— Anne Wilson Schaef
+<em>&quot;To be fully alive is to feel that everything is possible.&quot;</em> <br>
+— Eric Hoffer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
