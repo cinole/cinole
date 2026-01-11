@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;All know that the drop merges into the ocean, but few know that the ocean merges into the drop.&quot;</em> <br>
-— Kabir
+<em>&quot;You drown not by falling into a river, but by staying submerged in it.&quot;</em> <br>
+— Paulo Coelho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
