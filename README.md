@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everyone you meet is fighting a battle you know nothing about. Be kind. Always.&quot;</em> <br>
-— Robin Williams
+<em>&quot;Anger begins with folly, and ends with repentance. &quot;</em> <br>
+— Beverly Sills
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
