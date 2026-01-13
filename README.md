@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you don't find the time, if you don't do the work, you don't get the results.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in.&quot;</em> <br>
+— Virginia Woolf
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
