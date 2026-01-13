@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A man is not called wise because he talks and talks again; but if he is peaceful, loving and fearless then he is in truth called wise. &quot;</em> <br>
-— Buddha
+<em>&quot;One of the oldest human needs is having someone to wonder where you are when you don't come home at night. &quot;</em> <br>
+— Margaret Mead
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
