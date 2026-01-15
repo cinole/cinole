@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Most people dabble their way through life, never deciding to master anything in particular.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;Some people are old at 18 and some are young at 90. Time is a concept that humans created.&quot;</em> <br>
+— Yoko Ono
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
