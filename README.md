@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Every second you have on this planet is very precious and it's your responsibility that you're happy.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
