@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
