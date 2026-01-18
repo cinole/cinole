@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Darkness must pass. A new day will come. And when the sun shines, it will shine out the clearer.&quot;</em> <br>
+<em>&quot;It's the job that's never started that takes the longest to finish.&quot;</em> <br>
 — J.R.R. Tolkien
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
