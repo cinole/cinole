@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Always turn a negative situation into a positive situation.&quot;</em> <br>
-— Michael Jordan
+<em>&quot;Faith means believing the unbelievable.&quot;</em> <br>
+— Gilbert Chesterton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
