@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Go for it now. The future is promised to no one. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;It is not how much we have, but how much we enjoy, that makes happiness.&quot;</em> <br>
+— Charles Spurgeon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
