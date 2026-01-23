@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Life is a question and how we live it is our answer.&quot;</em> <br>
-— Gary Keller
+<em>&quot;If you see yourself as prosperous, you will be.&quot;</em> <br>
+— Robert Collier
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
