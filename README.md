@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Judgments prevent us from seeing the good that lies beyond appearances.  &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying.&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
