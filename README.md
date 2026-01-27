@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work.&quot;</em> <br>
-— John Eliot
+<em>&quot;If you can handle rejection, you'll learn to get everything you want.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
