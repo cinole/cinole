@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A bird does not sing because it has an answer. It sings because it has a song.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
