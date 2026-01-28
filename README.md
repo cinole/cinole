@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;No great discovery was ever made without a bold guess. &quot;</em> <br>
-— Isaac Newton
+<em>&quot;If I can laugh, I can live.&quot;</em> <br>
+— Christopher Reeve
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
