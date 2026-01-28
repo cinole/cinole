@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy.&quot;</em> <br>
-— Elon Musk
+<em>&quot;Yesterday is but today's memory, tomorrow is today's dream.&quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
