@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you want something then you lose everything. If you don't want anything then you already have everything.&quot;</em> <br>
-— Seungsahn
+<em>&quot;Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good.&quot;</em> <br>
+— Bhagavad Gita
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
