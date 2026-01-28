@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Knowledge isn't power until it is applied.&quot;</em> <br>
-— Dale Carnegie
+<em>&quot;For every minute you are angry you lose sixty seconds of happiness.&quot;</em> <br>
+— Ralph Waldo Emerson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
