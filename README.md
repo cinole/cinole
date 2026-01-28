@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Every failure brings with it the seed of an equivalent success.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;The more something scares you, the more you should do it.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
