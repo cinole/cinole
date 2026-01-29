@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Waste not fresh tears over old griefs.&quot;</em> <br>
-— Euripides
+<em>&quot;Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity.&quot;</em> <br>
+— Charles Spurgeon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
