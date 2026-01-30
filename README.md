@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;Yesterday is but today's memory, tomorrow is today's dream.&quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
