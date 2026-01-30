@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Yesterday is but today's memory, tomorrow is today's dream.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
