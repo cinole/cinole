@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Trust your instincts: my first reaction is almost invariably the right one.  &quot;</em> <br>
-— Estee Lauder
+<em>&quot;To raise your consciousness, surround yourself with people of higher consciousness.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
