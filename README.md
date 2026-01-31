@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There is little success where there is little laughter.&quot;</em> <br>
-— Andrew Carnegie
+<em>&quot;Truth is not something outside to be discovered, it is something inside to be realized.&quot;</em> <br>
+— Osho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
