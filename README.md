@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;First say to yourself what you would be; and then do what you have to do.&quot;</em> <br>
-— Epictetus
+<em>&quot;Do not look for a sanctuary in anyone except your self.&quot;</em> <br>
+— Buddha
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
