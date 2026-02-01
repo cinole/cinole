@@ -1,4 +1,4 @@
-### Happy weekend 🏝️
+### Good night 😴
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;The fear of death is more to be feared, than death itself.&quot;</em> <br>
+— Publilius Syrus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
