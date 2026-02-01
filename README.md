@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Man should fear never beginning to live.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;You live by what you thrill to, and there's the end of it.&quot;</em> <br>
+— D. H. Lawrence
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
