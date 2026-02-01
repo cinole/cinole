@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?&quot;</em> <br>
-— Sathya Sai Baba
+<em>&quot;I am thankful to all those who said no. It's because of them, I did it myself.  &quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
