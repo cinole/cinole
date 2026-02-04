@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Empty yourself of everything - let the mind become still.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
