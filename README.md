@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Ripe fruit falls by itself - but it doesn't fall in your mouth. &quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
