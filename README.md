@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I believe that potential is unlimited - success depends on daring to act on dreams.   &quot;</em> <br>
-— Estee Lauder
+<em>&quot;We will outstretch the hand if you unclench your fist.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
