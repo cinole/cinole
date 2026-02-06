@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Give more than you think you can, trusting that you are richer than you think.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;If the plan doesn't work, change the plan, but never the goal.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
