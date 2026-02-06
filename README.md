@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;He who possesses most must be most afraid of loss.&quot;</em> <br>
-— Leonardo da Vinci
+<em>&quot;If you want to keep your memories, you first have to live them.&quot;</em> <br>
+— Bob Dylan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
