@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If the plan doesn't work, change the plan, but never the goal.&quot;</em> <br>
-— Unknown
+<em>&quot;When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place.&quot;</em> <br>
+— Bhagavad Gita
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
