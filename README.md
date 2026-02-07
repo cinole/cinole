@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When reading, only read. When eating, only eat. When thinking, only think.&quot;</em> <br>
-— Seungsahn
+<em>&quot;It is safer to search in the maze than to remain in a cheeseless situation.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
