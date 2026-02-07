@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We are all in the gutter, but some of us are looking at the stars. &quot;</em> <br>
-— Oscar Wilde
+<em>&quot;Truth is exact correspondence with reality. &quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
