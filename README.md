@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim.&quot;</em> <br>
-— John D. Rockefeller
+<em>&quot;If you don't break your ropes while you're alive, do you think ghosts will do it after?&quot;</em> <br>
+— Kabir
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
