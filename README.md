@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Fear can hold you prisoner. Hope can set you free.&quot;</em> <br>
-— Stephen King
+<em>&quot;Don't change your mind just because people are offended; change your mind if you're wrong.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
