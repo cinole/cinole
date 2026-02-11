@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Most of us will do anything to avoid facing ourselves.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;When it hurts - observe. Life is trying to teach you something.&quot;</em> <br>
+— Anita Krizzan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
