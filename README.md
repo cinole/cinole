@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you aren't sure which way to do something, do it both ways and see which works better.&quot;</em> <br>
-— John Carmack
+<em>&quot;Freedom itself demands discomfort.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
