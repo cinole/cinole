@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment.&quot;</em> <br>
+— Ralph Waldo Emerson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
