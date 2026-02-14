@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The more you feed your mind with positive thoughts, the more you can attract great things into your life.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Success is getting what you want... Happiness is wanting what you get.&quot;</em> <br>
+— Dale Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
