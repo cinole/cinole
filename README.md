@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Change is hard at first, messy in the middle and gorgeous at the end.&quot;</em> <br>
-— Robin Sharma
+<em>&quot;Words have no power to impress the mind without the exquisite horror of their reality.&quot;</em> <br>
+— Edgar Allan Poe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
