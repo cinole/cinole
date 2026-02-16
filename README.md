@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Live simply, expect little, give much.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;The future is the worst thing about the present.&quot;</em> <br>
+— Gustave Flaubert
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
