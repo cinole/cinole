@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward.&quot;</em> <br>
-— Colin Powell
+<em>&quot;Don't be afraid that you do not know something. Be afraid of not learning about it.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
