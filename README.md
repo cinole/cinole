@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;You are free, and that is why you are lost.&quot;</em> <br>
+— Franz Kafka
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
