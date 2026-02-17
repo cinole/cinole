@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest doer must also be a great dreamer.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Only the hand that erases can write the true thing.&quot;</em> <br>
+— Meister Eckhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
