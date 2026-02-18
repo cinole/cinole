@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;Anything you may hold firmly in your imagination can be yours.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
