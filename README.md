@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Wheels of justice grind slow but grind fine.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
