@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work.&quot;</em> <br>
-— Ralph Marston
+<em>&quot;If you don't program yourself, life will program you.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
