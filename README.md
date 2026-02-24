@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Note that this journey is uniquely yours, no one elses. So the path has to be your own.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;Expect the best of yourself, and then do what is necessary to make it a reality.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
