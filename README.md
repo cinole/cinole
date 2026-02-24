@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Better a diamond with a flaw than a pebble without one.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;To be prepared is half the victory. &quot;</em> <br>
+— Miguel de Cervantes
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
