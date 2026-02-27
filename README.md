@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death.&quot;</em> <br>
-— Socrates
+<em>&quot;To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead.&quot;</em> <br>
+— Samuel Butler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
