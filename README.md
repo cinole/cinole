@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus.&quot;</em> <br>
-— Alexander Graham Bell
+<em>&quot;To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh.&quot;</em> <br>
+— Pema Chodron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
