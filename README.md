@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Your goals are the road maps that guide you and show you what is possible for your life.&quot;</em> <br>
-— Les Brown
+<em>&quot;It's not how much we give but how much love we put into giving.&quot;</em> <br>
+— Mother Teresa
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
