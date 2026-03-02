@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The sun shines upon good and bad alike.&quot;</em> <br>
-— Hans Christian Andersen
+<em>&quot;Trusting our intuition often saves us from disaster. &quot;</em> <br>
+— Anne Wilson Schaef
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
