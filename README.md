@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nothing is hopeless; we must hope for everything.&quot;</em> <br>
-— Euripides
+<em>&quot;To know your Enemy, you must become your Enemy.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
