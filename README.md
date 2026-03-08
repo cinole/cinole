@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The only thing worse than being blind is having sight but no vision.&quot;</em> <br>
-— Helen Keller
+<em>&quot;If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
