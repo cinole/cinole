@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality.&quot;</em> <br>
-— Vaclav Havel
+<em>&quot;If you pray for rain, be prepared to deal with some mud.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
