@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When a man is penalized for honesty he learns to lie.&quot;</em> <br>
-— Criss Jami
+<em>&quot;Our truest life is when we are in dreams awake.&quot;</em> <br>
+— Henry David Thoreau
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
