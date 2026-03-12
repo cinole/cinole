@@ -1,4 +1,4 @@
-### Good afternoon 👋
+### Good evening ☕
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The first step toward getting somewhere is to decide that you are not going to stay where you are.&quot;</em> <br>
-— Unknown
+<em>&quot;Nourish the mind like you would your body. The mind cannot survive on junk food.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
