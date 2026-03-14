@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;No man can get rich himself unless he enriches others.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
