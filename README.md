@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The spirit is beyond destruction. No one can bring an end to spirit which is everlasting.&quot;</em> <br>
-— Bhagavad Gita
+<em>&quot;The attempt to escape from pain, is what creates more pain.&quot;</em> <br>
+— Gabor Mate
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
