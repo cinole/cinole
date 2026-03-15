@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The friendship that can cease has never been real. &quot;</em> <br>
-— St. Jerome
+<em>&quot;The hardest arithmetic to master is that which enables us to count our blessings.&quot;</em> <br>
+— Eric Hoffer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
