@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We must be free not because we claim freedom, but because we practice it.&quot;</em> <br>
-— William Faulkner
+<em>&quot;Happiness is the meaning and the purpose of life, the whole aim and end of human existence.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
