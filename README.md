@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It takes half your life before you discover life is a do-it-yourself project.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
