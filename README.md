@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;Your world is a living expression of how you are using and have used your mind.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
