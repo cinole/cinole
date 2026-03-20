@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Do not use life to give life to death. Do not use death to bring death to life.&quot;</em> <br>
+— Zhuangzi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
