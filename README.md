@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everything has its beauty, but not everyone sees it. &quot;</em> <br>
-— Confucius
+<em>&quot;There are as many opinions as there are experts.&quot;</em> <br>
+— Franklin D. Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
