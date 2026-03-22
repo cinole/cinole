@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I don't pretend to know everything; I just only speak on matters I know I'll win.&quot;</em> <br>
-— Criss Jami
+<em>&quot;We create the world and ourselves;&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
