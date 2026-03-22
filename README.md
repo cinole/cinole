@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead.&quot;</em> <br>
+— Samuel Butler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
