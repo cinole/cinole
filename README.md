@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better.&quot;</em> <br>
-— Elon Musk
+<em>&quot;People who belittle people, will be LITTLE people, and will accomplish very Little&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
