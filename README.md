@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We may not be able to stop evil in the world, but how we treat one another is entirely up to us.&quot;</em> <br>
-— Barack Obama
+<em>&quot;Before preparing to improve the world, first look around your own home three times. &quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
