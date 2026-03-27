@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I am thankful to all who said no to me. It is because of them that I'm doing it myself.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience.&quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
