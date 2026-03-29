@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality.&quot;</em> <br>
-— James Cameron
+<em>&quot;I want the fishing rod, not the fish.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
