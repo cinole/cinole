@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We live only now. Everything else is either passed or is unknown.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;Friendship is one of the most tangible things in a world which offers fewer and fewer supports.&quot;</em> <br>
+— Kenneth Branagh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
