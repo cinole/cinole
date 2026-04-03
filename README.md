@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The most courageous act is still to think for yourself. Aloud.&quot;</em> <br>
-— Coco Chanel
+<em>&quot;Just do the best you can. No one can do more than that.&quot;</em> <br>
+— John Wooden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
