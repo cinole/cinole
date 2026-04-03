@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nothing is permanent in this wicked world - not even our troubles.&quot;</em> <br>
-— Charlie Chaplin
+<em>&quot;Fear is your worst enemy. Risk is your best friend.&quot;</em> <br>
+— Gurbaksh Chahal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
