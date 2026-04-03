@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Friendship is one of the most tangible things in a world which offers fewer and fewer supports.&quot;</em> <br>
-— Kenneth Branagh
+<em>&quot;Riches don't make a man rich, they only make him busier.&quot;</em> <br>
+— Christopher Columbus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
