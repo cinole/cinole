@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Your only limitations are those you set up in your mind or permit others to set up for you.&quot;</em> <br>
-— Og Mandino
+<em>&quot;Failure is simply the opportunity to begin again, this time more intelligently.&quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
