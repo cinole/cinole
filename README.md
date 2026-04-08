@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;No tree, it is said, can grow to heaven unless its roots reach down to hell.&quot;</em> <br>
-— Carl Jung
+<em>&quot;Life is not a problem to be solved, but a reality to be experienced.&quot;</em> <br>
+— Soren Kierkegaard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
