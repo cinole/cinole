@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;Maybe you are searching among the branches, for what only appears in the roots.&quot;</em> <br>
+— Rumi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
