@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Maybe you are searching among the branches, for what only appears in the roots.&quot;</em> <br>
-— Rumi
+<em>&quot;Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. &quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
