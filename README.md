@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is during our darkest moments that we must focus to see the light.&quot;</em> <br>
-— Aristotle
+<em>&quot;The world doesn't owe you anything. It was here first.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
