@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Absorb what is useful, discard what is useless and add what is specifically your own.  &quot;</em> <br>
-— Bruce Lee
+<em>&quot;To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace.&quot;</em> <br>
+— Morihei Ueshiba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
