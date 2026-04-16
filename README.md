@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The only place success comes before work is in the dictionary.&quot;</em> <br>
-— Vince Lombardi
+<em>&quot;It is useless to meet revenge with revenge; it will heal nothing.&quot;</em> <br>
+— J.R.R. Tolkien
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
