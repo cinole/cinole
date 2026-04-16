@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;You know you are on the road to success if you would do your job and not be paid for it.&quot;</em> <br>
+— Oprah Winfrey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
