@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Make your mind your own business.&quot;</em> <br>
-— Jack Butcher
+<em>&quot;Have the fearless attitude of a hero and the loving heart of a child.&quot;</em> <br>
+— Soyen Shaku
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
