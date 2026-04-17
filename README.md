@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are only two ways to live your life. One is as if nothing is a miracle. The other is as if everything is a miracle.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;Make your mind your own business.&quot;</em> <br>
+— Jack Butcher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
