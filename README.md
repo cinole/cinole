@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Either get busy living or get busy dying.&quot;</em> <br>
-— Stephen King
+<em>&quot;Trying to define yourself is like trying to bite your own teeth.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
