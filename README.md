@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The greatest treasures are those invisible to the eye but found by the heart.&quot;</em> <br>
-— Judy Garland
+<em>&quot;Doing what you love is the cornerstone of having abundance in your life. &quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
