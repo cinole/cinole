@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Words are the clothes thoughts wear.&quot;</em> <br>
-— Samuel Beckett
+<em>&quot;Elegance does not consist in putting on a new dress.&quot;</em> <br>
+— Coco Chanel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
