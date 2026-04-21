@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good afternoon 👋
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Leaders think and talk about solutions. Followers think and talk about the problems.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;The more you like yourself, the less you are like anyone else, which makes you unique.&quot;</em> <br>
+— Walt Disney
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
