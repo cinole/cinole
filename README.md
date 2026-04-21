@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Of all men's miseries the bitterest is this: to know so much and to have control over nothing. &quot;</em> <br>
-— Herodotus
+<em>&quot;Words are the clothes thoughts wear.&quot;</em> <br>
+— Samuel Beckett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
