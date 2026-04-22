@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you are unable to find the truth right where you are, where else do you expect to find it?&quot;</em> <br>
-— Dogen
+<em>&quot;For things to change, you have to change.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
