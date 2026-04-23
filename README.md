@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If I can pay the bills, I'm happy.&quot;</em> <br>
-— Morgan Wootten
+<em>&quot;Change the changeable, accept the unchangeable, and remove yourself from the unacceptable. &quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
