@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Success is about creating value.&quot;</em> <br>
-— Candice Carpenter
+<em>&quot;The world is open for play, everything and everybody is mockable in a wonderful way.&quot;</em> <br>
+— Robin Williams
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
