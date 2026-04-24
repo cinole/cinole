@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;I enjoy life when things are happening. I don't care if it's good things or bad things. That means you're alive.&quot;</em> <br>
-— Joan Rivers
+<em>&quot;If you don't find the time, if you don't do the work, you don't get the results.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
