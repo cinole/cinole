@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play.&quot;</em> <br>
-— Alan Watts
+<em>&quot;I have never in my life learned anything from any man who agreed with me.&quot;</em> <br>
+— Dudley Field Malone
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
