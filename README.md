@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;To do two things at once is to do neither.&quot;</em> <br>
+— Publilius Syrus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
