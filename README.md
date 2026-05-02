@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A man sees in the world what he carries in his heart.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;You are not what you think you are, You are not what others think you are, You are what you think others think you are.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
