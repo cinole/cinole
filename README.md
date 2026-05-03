@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed.&quot;</em> <br>
-— Mark Twain
+<em>&quot;In order to control myself I must first accept myself by going with and not against my nature.&quot;</em> <br>
+— Bruce Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
