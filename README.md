@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Where there is no struggle, there is no strength. &quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;Manifest plainness, embrace simplicity, reduce selfishness, have few desires.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
