@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everything eaten is killed. Every meal is a sacrifice.&quot;</em> <br>
-— Adi Da Samraj
+<em>&quot;Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
