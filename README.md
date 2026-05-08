@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;If you're afraid - don't do it, - if you're doing it - don't be afraid! &quot;</em> <br>
+— Genghis Khan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
