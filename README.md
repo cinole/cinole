@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The ego wants comfort and certainty. The soul wants to live fully.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;It is not how much we have, but how much we enjoy, that makes happiness.&quot;</em> <br>
+— Charles Spurgeon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
