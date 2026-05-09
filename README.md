@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed.&quot;</em> <br>
+— Lily Tomlin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
