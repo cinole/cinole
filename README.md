@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Men go to far greater lengths to avoid what they fear than to obtain what they desire.&quot;</em> <br>
-— Dan Brown
+<em>&quot;The ego wants comfort and certainty. The soul wants to live fully.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
