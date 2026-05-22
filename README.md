@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;When you love someone, you love the person as they are, and not as you'd like them to be.&quot;</em> <br>
-— Leo Tolstoy
+<em>&quot;Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose.&quot;</em> <br>
+— Steve Jobs
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
