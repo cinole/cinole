@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;The first man gets the oyster, the second man gets the shell.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
