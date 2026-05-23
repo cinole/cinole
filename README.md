@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;People who say it cannot be done should not interrupt those who are doing it.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
