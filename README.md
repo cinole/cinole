@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Attitude drives actions. Actions drive results. Results drive lifestyles.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Where your talents and the needs of the world cross, there lies your vocation.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
