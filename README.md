@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;Inner peace is when you realize that, in the end, nothing matters.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
