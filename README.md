@@ -1,4 +1,4 @@
-### Good evening ☕
+### Good night 😴
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is those who concentrate on but one thing at a time who advance in this world.&quot;</em> <br>
-— Gary Keller
+<em>&quot;Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed.&quot;</em> <br>
+— William Faulkner
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
