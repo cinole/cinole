@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;The best dreams happen when you're awake.&quot;</em> <br>
+— Cherie Gilderbloom
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
