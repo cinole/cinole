@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A Penny Saved is a Penny Earned&quot;</em> <br>
-— Benjamin Franklin
+<em>&quot;Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood.&quot;</em> <br>
+— Charles Dickens
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
