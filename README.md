@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The more perfect a person is on the outside, the more demons they have on the inside.&quot;</em> <br>
-— Sigmund Freud
+<em>&quot;Don't wait for extraordinary opportunities. Seize common occasions and make them great.&quot;</em> <br>
+— Orison Swett Marden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
