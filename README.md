@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Most people achieved their greatest success one step beyond what looked like their greatest failure.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;The ego wants comfort and certainty. The soul wants to live fully.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
