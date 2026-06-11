@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good afternoon 👋
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Success is a consequence and must not be a goal.&quot;</em> <br>
-— Gustave Flaubert
+<em>&quot;Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has.&quot;</em> <br>
+— Margaret Mead
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
