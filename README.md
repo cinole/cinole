@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Those who are possessed by nothing possess everything.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;The wisest men follow their own direction.&quot;</em> <br>
+— Euripides
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
