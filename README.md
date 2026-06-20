@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Don't let the noise of others' opinions drown out your own inner voice.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;If you don't like something change it. If you can't change it, change your attitude about it. Don't complain.&quot;</em> <br>
+— Maya Angelou
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
