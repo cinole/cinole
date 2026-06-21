@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Every day passes whether you participate or not.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;Talk to someone about themselves and they'll listen for hours.&quot;</em> <br>
+— Dale Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
