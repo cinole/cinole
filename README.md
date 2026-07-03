@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The person who cannot control his words shows that he cannot control himself.&quot;</em> <br>
-— Robert Greene
+<em>&quot;Your mind will make you rich or poor, depending on the use you put to it.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
