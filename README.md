@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;One loses many laughs by not laughing at oneself.&quot;</em> <br>
-— Mary Engelbreit
+<em>&quot;The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach.&quot;</em> <br>
+— Benjamin Mays
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
