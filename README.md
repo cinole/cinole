@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Only those who dare to fail greatly can ever achieve greatly.&quot;</em> <br>
-— Robert F. Kennedy
+<em>&quot;The world would go on even without you. Don't take yourself so seriously.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
