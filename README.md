@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Any idea, plan, or purpose may be placed in the mind through repetition of thought.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;There is only the one reality, neither to be realized nor attained.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
