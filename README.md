@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;May you find grace as you surrender to life. May you find happiness, as you stop seeking it.&quot;</em> <br>
-— Dan Millman
+<em>&quot;Being in a good frame of mind helps keep one in the picture of health.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
