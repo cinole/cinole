@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;To accomplish big things, I am convinced you must first dream big dreams.&quot;</em> <br>
-— Conrad Hilton
+<em>&quot;Don't be afraid to stand for what you believe in, even if that means standing alone.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
