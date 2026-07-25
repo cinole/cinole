@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way.&quot;</em> <br>
-— Osho
+<em>&quot;Do not believe that you will reach your destination without leaving the shore.&quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
