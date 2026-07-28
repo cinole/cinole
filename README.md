@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;Learn only how to avoid seeking for and attaching yourselves to anything.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
