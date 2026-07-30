@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Beauty is not in the face; beauty is a light in the heart.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;The power of human thought grows exponentially with the number of minds that share that thought.&quot;</em> <br>
+— Dan Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
