@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Be not afraid of growing slowly, be afraid only of standing still.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes.&quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
