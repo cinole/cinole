@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;Difficult and meaningful will always bring more satisfaction than easy and meaningless.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
