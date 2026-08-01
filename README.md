@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases.&quot;</em> <br>
-— Sathya Sai Baba
+<em>&quot;Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it.&quot;</em> <br>
+— Alexandre Dumas
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
