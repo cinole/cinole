@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Remember that this moment is not your life, it's just a moment in your life. Focus on what is in front of you, right now.&quot;</em> <br>
-— Ryan Holiday
+<em>&quot;The happiest people in the world are those who feel absolutely terrific about themselves.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
