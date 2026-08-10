@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever.&quot;</em> <br>
-— Alexandre Dumas
+<em>&quot;Knowledge has to be improved, challenged, and increased constantly, or it vanishes.&quot;</em> <br>
+— Peter Drucker
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
