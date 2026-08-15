@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The degree of responsibility you take for your life determines how much change you can create in it.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;Better than the young man's knowledge is the old man's experience.&quot;</em> <br>
+— Tibetan Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
