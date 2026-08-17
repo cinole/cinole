@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Who can say for sure that one will live to see tomorrow.&quot;</em> <br>
-— Tibetan Proverb
+<em>&quot;Don't let the noise of others' opinions drown out your own inner voice.&quot;</em> <br>
+— Steve Jobs
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
