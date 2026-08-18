@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;The world is a puzzle; no need to make sense out of it.&quot;</em> <br>
+— Socrates
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
