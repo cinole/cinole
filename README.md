@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The friend is the man who knows all about you, and still likes you.&quot;</em> <br>
-— Elbert Hubbard
+<em>&quot;Do not regret the past. Look to the future.&quot;</em> <br>
+— Soyen Shaku
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
