@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Make peace within, and there will be no one who can overcome you. And no one you will wish to overcome.&quot;</em> <br>
-— Dan Millman
+<em>&quot;It is better to disappoint people with the truth than to appease them with a lie.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
