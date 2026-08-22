@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;The destiny of man is in his own soul.&quot;</em> <br>
+— Herodotus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
