@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;Wheresoever you go, go with all your heart.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
