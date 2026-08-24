@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results.&quot;</em> <br>
-— Peter Drucker
+<em>&quot;Whether you have a problem in your life or not depends upon your own attitude, your own understanding.&quot;</em> <br>
+— Shunryu Suzuki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
