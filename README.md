@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;It is better to light a single candle than to curse the darkness.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them.&quot;</em> <br>
+— W. Clement Stone
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
