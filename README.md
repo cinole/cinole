@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;One is never afraid of the unknown; one is afraid of the known coming to an end.&quot;</em> <br>
-— Jiddu Krishnamurti
+<em>&quot;Loss is nothing else but change and change is nature's delight.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
