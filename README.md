@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;Do something worth remembering.&quot;</em> <br>
+— Elvis Presley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
