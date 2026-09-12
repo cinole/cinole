@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;What the mind can conceive and believe, and the heart desire, you can achieve.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question.&quot;</em> <br>
+— John Tukey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
