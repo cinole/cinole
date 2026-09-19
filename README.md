@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you.&quot;</em> <br>
-— Sonia Ricotti
+<em>&quot;If you're waiting until you feel talented enough to make it, you'll never make it.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
