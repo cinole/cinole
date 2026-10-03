@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;As long as a human being worries about when he will die, and what he has that is his, all of his works are zero.&quot;</em> <br>
-— Kabir
+<em>&quot;You cannot push anyone up a ladder unless he is willing to climb a little himself.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
