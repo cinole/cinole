@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good afternoon 👋
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;The way we feel is the direct result of what we think.&quot;</em> <br>
-— Peter A. Cohen
+<em>&quot;Getting lost along your path is a part of finding the path you are meant to be on.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
