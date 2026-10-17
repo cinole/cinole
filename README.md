@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;People who say it cannot be done should not interrupt those who are doing it.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;Difficulties strengthen the mind, as labor does the body.&quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
