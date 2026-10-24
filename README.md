@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;For the things we have to learn before we can do them, we learn by doing them.&quot;</em> <br>
+<em>&quot;To perceive is to suffer.&quot;</em> <br>
 — Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
