@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;A crisis is an opportunity riding the dangerous wind.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;If you build the guts to do something, anything, then you better save enough to face the consequences.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
