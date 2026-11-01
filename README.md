@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;If you build the guts to do something, anything, then you better save enough to face the consequences.&quot;</em> <br>
-— Criss Jami
+<em>&quot;The greatest deception men suffer is from their own opinions.&quot;</em> <br>
+— Leonardo da Vinci
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
