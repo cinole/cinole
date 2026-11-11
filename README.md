@@ -1,4 +1,4 @@
-### Good evening ☕
+### Good night 😴
 <h2>I'm Cyn, a Frontend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Life without love is like a tree without blossoms or fruit.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;In order to control myself I must first accept myself by going with and not against my nature.&quot;</em> <br>
+— Bruce Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
