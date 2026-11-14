@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;Real learning comes about when the competitive spirit has ceased.&quot;</em> <br>
-— Jiddu Krishnamurti
+<em>&quot;A leader is one who knows the way, goes the way, and shows the way.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
