@@ -20,7 +20,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: <a href="https://chillwithsu.com/">chillwithsu.com</a>
 ## Quote of the day:
-<em>&quot;You can put lipstick on a pig. It's still a pig.&quot;</em> <br>
-— Barack Obama
+<em>&quot;Laziness may appear attractive, but work gives satisfaction.&quot;</em> <br>
+— Anne Frank
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
